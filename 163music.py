@@ -63,7 +63,7 @@ if len(argv)>=1:
     del argv[0]
 
 songs = getSongData(uid=uid, song_type=int(song_type))
-songs = songs[:5]
+songs = songs[:10]
 i = 0
 text = ""
 for song in songs:
