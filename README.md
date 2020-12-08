@@ -2,11 +2,16 @@
 
 ### Hello 👋
 
-😄 listen to my this week song list of top 5:
+😄 listen to my this week song list of top 10:
 
 0. 🌈以父之名 - 周杰伦
 1. 🌈遇见你的时候所有星星都落到我头上 - 高姗
 2. 🌈Mojito - 周杰伦
-3. 🌈心恋 - 徐小凤
+3. 🌈七里香 - 周杰伦
 4. 🌈半城烟沙 (合唱版) - 许嵩/金莎
+5. 🌈谪仙 - 伊格赛听/叶里
+6. 🌈海底 - 一支榴莲
+7. 🌈自己的房间 - 田馥甄
+8. 🌈斑马, 斑马 - IU
+9. 🌈心恋 - 徐小凤
 
