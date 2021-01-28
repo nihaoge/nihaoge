@@ -5,8 +5,8 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈Alien Girl - 陈冠希/MC仁/厨房仔
-1. 🌈가끔 이러다 - Punch
-2. 🌈King Boomba's Crew - 陈冠希/MC Hotdog
+1. 🌈King Boomba's Crew - 陈冠希/MC Hotdog
+2. 🌈가끔 이러다 - Punch
 3. 🌈无心睡眠 - 陈冠希
 4. 🌈I Can Fly - 陈冠希
 5. 🌈Daydream - 宋岳庭
