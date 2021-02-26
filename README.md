@@ -10,8 +10,8 @@
 3. 🌈Alien Girl - 陈冠希/MC仁/厨房仔
 4. 🌈I Can Fly - 陈冠希
 5. 🌈无心睡眠 - 陈冠希
-6. 🌈Kyoto - Skrillex/Sirah
-7. 🌈灵魂伴侣 - 田馥甄
-8. 🌈七月上 - Jam
-9. 🌈King Boomba's Crew - 陈冠希/MC Hotdog
+6. 🌈深夜的歌 - 张过年
+7. 🌈Kyoto - Skrillex/Sirah
+8. 🌈无用 (Live) - 田馥甄
+9. 🌈卷睫盼 - 万玲琳
 
