@@ -10,8 +10,8 @@
 3. 🌈Same Ol' - The Heavy
 4. 🌈Mario Karting - 陈冠希/MC Hotdog
 5. 🌈离开 - MC Hotdog/张震岳
-6. 🌈我想我不会爱你 - 田馥甄
-7. 🌈不晚 - 田馥甄
-8. 🌈谣言 - 陈冠希
-9. 🌈就让这首歌 - 张震岳/侯佩岑/MC Hotdog
+6. 🌈就让这首歌 - 张震岳/侯佩岑/MC Hotdog
+7. 🌈十二 - 留声玩具
+8. 🌈上海一九四三 - 周杰伦
+9. 🌈Life's A Struggle - 宋岳庭
 
