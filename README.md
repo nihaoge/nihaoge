@@ -9,9 +9,9 @@
 2. 🌈Mario Karting - 陈冠希/MC Hotdog
 3. 🌈Life's A Struggle - 宋岳庭
 4. 🌈谣言 - 陈冠希
-5. 🌈无心睡眠 - 陈冠希
-6. 🌈King Boomba's Crew - 陈冠希/MC Hotdog
-7. 🌈离开 - MC Hotdog/张震岳
-8. 🌈九局下半 - MC Hotdog
-9. 🌈记得我吗 - 陈冠希
+5. 🌈曾经的你 - 许巍
+6. 🌈离开 - MC Hotdog/张震岳
+7. 🌈King Boomba's Crew - 陈冠希/MC Hotdog
+8. 🌈暗里着迷 - 车厘子的车车
+9. 🌈无心睡眠 - 陈冠希
 
