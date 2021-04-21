@@ -10,8 +10,8 @@
 3. 🌈谣言 - 陈冠希
 4. 🌈反方向的钟 - 周杰伦
 5. 🌈Life's A Struggle - 宋岳庭
-6. 🌈离开 - MC Hotdog/张震岳
-7. 🌈灵魂伴侣 - 田馥甄
-8. 🌈暗里着迷 - 车厘子的车车
-9. 🌈命运青红灯 - MC Hotdog
+6. 🌈命运青红灯 - MC Hotdog
+7. 🌈离开 - MC Hotdog/张震岳
+8. 🌈柠檬树 (翻唱) - 王若琳
+9. 🌈King Boomba's Crew - 陈冠希/MC Hotdog
 
