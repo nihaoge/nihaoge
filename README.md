@@ -8,10 +8,10 @@
 1. 🌈反方向的钟 - 周杰伦
 2. 🌈いつもこの場所で - 彩音
 3. 🌈Mario Karting - 陈冠希/MC Hotdog
-4. 🌈谣言 - 陈冠希
-5. 🌈很难 - 张震岳
-6. 🌈Love Song - 宋岳庭
-7. 🌈离开 - MC Hotdog/张震岳
+4. 🌈很难 - 张震岳
+5. 🌈Love Song - 宋岳庭
+6. 🌈无人知晓 - 田馥甄
+7. 🌈谣言 - 陈冠希
 8. 🌈King Boomba's Crew - 陈冠希/MC Hotdog
-9. 🌈无人知晓 - 田馥甄
+9. 🌈Daydream - 宋岳庭
 
