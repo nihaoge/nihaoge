@@ -9,9 +9,9 @@
 2. 🌈斑马斑马 - 房东的猫
 3. 🌈反方向的钟 - 周杰伦
 4. 🌈很难 - 张震岳
-5. 🌈几点 - 陈冠希/MC Hotdog/MC仁/李璨琛
-6. 🌈彩虹 - 周杰伦
+5. 🌈彩虹 - 周杰伦
+6. 🌈几点 - 陈冠希/MC Hotdog/MC仁/李璨琛
 7. 🌈离开 - MC Hotdog/张震岳
 8. 🌈Mario Karting - 陈冠希/MC Hotdog
-9. 🌈King Boomba's Crew - 陈冠希/MC Hotdog
+9. 🌈迷人的危险 - 明歆悦
 
