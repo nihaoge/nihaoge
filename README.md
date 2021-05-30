@@ -5,8 +5,8 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈Coming Home - MC Hotdog/顽童MJ116
-1. 🌈Spotlight - 顽童MJ116
-2. 🌈脱罪 - 顽童MJ116
+1. 🌈脱罪 - 顽童MJ116
+2. 🌈Spotlight - 顽童MJ116
 3. 🌈South Side - 顽童MJ116
 4. 🌈Man In the Mirror   - 顽童MJ116/魏如萱
 5. 🌈2030 - 顽童MJ116
