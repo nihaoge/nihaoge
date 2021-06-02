@@ -11,7 +11,7 @@
 4. 🌈South Side - 顽童MJ116
 5. 🌈2030 - 顽童MJ116
 6. 🌈傲娇+辣台妹 feat. 顽童MJ116(Live) - 徐佳莹/顽童MJ116
-7. 🌈超級酷 - 顽童MJ116
+7. 🌈GOOD VIBE Feat. STARR CHEN , MOOZLIE - 顽童MJ116/陈星翰/Moozlie
 8. 🌈Spotlight - 顽童MJ116
-9. 🌈R&B Girl Feat. J.Sheon - 顽童MJ116/J. Sheon
+9. 🌈超級酷 - 顽童MJ116
 
