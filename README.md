@@ -10,8 +10,8 @@
 3. 🌈敞篷车 - 顽童MJ116
 4. 🌈GOOD VIBE Feat. STARR CHEN , MOOZLIE - 顽童MJ116/陈星翰/Moozlie
 5. 🌈脱罪 - 顽童MJ116
-6. 🌈Coming Home - MC Hotdog/顽童MJ116
-7. 🌈走跳 - 顽童MJ116
-8. 🌈Super Duper - 顽童MJ116
-9. 🌈2030 - 顽童MJ116
+6. 🌈走跳 - 顽童MJ116
+7. 🌈Coming Home - MC Hotdog/顽童MJ116
+8. 🌈2030 - 顽童MJ116
+9. 🌈Super Duper - 顽童MJ116
 
