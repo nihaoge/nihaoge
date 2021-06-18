@@ -9,9 +9,9 @@
 2. 🌈走跳 - 顽童MJ116
 3. 🌈脱罪 - 顽童MJ116
 4. 🌈天的创作 - 瘦子E.SO
-5. 🌈她没在看我 - 瘦子E.SO
+5. 🌈Coming Home - MC Hotdog/顽童MJ116
 6. 🌈CHANGE - 瘦子E.SO
-7. 🌈Coming Home - MC Hotdog/顽童MJ116
-8. 🌈敞篷车 - 顽童MJ116
-9. 🌈GOOD VIBE Feat. STARR CHEN , MOOZLIE - 顽童MJ116/陈星翰/Moozlie
+7. 🌈她没在看我 - 瘦子E.SO
+8. 🌈GOOD VIBE Feat. STARR CHEN , MOOZLIE - 顽童MJ116/陈星翰/Moozlie
+9. 🌈地痞 - 顽童MJ116/瘦子E.SO
 
