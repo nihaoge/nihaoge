@@ -12,6 +12,6 @@
 5. 🌈你说了算 - 张惠妹/瘦子E.SO
 6. 🌈Next Level - 江静（呆宝静）
 7. 🌈Spotlight - 顽童MJ116
-8. 🌈Play我呸 - 蔡依林
-9. 🌈MC来了 - MC Hotdog
+8. 🌈MC来了 - MC Hotdog
+9. 🌈Play我呸 - 蔡依林
 
