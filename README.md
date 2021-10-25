@@ -9,9 +9,9 @@
 2. 🌈Bonus Track : I'm a Rapper - 江静（呆宝静）
 3. 🌈CPR - 江静（呆宝静）
 4. 🌈干大事  - 顽童MJ116
-5. 🌈你说了算 - 张惠妹/瘦子E.SO
-6. 🌈Spotlight - 顽童MJ116
-7. 🌈超級酷 - 顽童MJ116
-8. 🌈Next Level - 江静（呆宝静）
-9. 🌈Love Song - 宋岳庭
+5. 🌈Love Song - 宋岳庭
+6. 🌈超級酷 - 顽童MJ116
+7. 🌈MC来了 - MC Hotdog
+8. 🌈你说了算 - 张惠妹/瘦子E.SO
+9. 🌈地痞 - 顽童MJ116/瘦子E.SO
 
