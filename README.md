@@ -7,11 +7,11 @@
 0. 🌈Jungle - 顽童MJ116
 1. 🌈Play我呸 - 蔡依林
 2. 🌈Click Clack - Slim Thug/Pusha T
-3. 🌈MC来了 - MC Hotdog
-4. 🌈飙高速 - 顽童MJ116
-5. 🌈2030 - 顽童MJ116
-6. 🌈脱罪 - 顽童MJ116
-7. 🌈少年董  - 顽童MJ116
-8. 🌈迷途羔羊 (Live) - 顽童MJ116
-9. 🌈你说了算 - 张惠妹/瘦子E.SO
+3. 🌈飙高速 - 顽童MJ116
+4. 🌈MC来了 - MC Hotdog
+5. 🌈迷途羔羊 (Live) - 顽童MJ116
+6. 🌈你说了算 - 张惠妹/瘦子E.SO
+7. 🌈2030 - 顽童MJ116
+8. 🌈脱罪 - 顽童MJ116
+9. 🌈Bonus Track : I'm a Rapper - 江静（呆宝静）
 
