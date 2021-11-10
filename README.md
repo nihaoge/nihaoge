@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈Jungle - 顽童MJ116
-1. 🌈Play我呸 - 蔡依林
+1. 🌈干大事  - 顽童MJ116
 2. 🌈金上瘾 - 顽童MJ116
-3. 🌈飙高速 - 顽童MJ116
-4. 🌈2030 - 顽童MJ116
-5. 🌈干大事  - 顽童MJ116
-6. 🌈Click Clack - Slim Thug/Pusha T
-7. 🌈几点 - 陈冠希/厨房仔/MC Hotdog/李灿森
-8. 🌈少年董  - 顽童MJ116
-9. 🌈地痞 - 顽童MJ116/瘦子E.SO
+3. 🌈Play我呸 - 蔡依林
+4. 🌈飙高速 - 顽童MJ116
+5. 🌈生煎包 - 顽童MJ116
+6. 🌈敞篷车 - 顽童MJ116
+7. 🌈Click Clack - Slim Thug/Pusha T
+8. 🌈Won't Deny (Feat. 瘦子E.SO) - 江静（呆宝静）/瘦子E.SO
+9. 🌈Life's A Struggle - 宋岳庭
 
