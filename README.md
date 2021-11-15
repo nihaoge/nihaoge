@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈金上瘾 - 顽童MJ116
-1. 🌈CPR - 江静（呆宝静）
-2. 🌈地痞 - 顽童MJ116/瘦子E.SO
-3. 🌈Jungle - 顽童MJ116
-4. 🌈再见 - 江静（呆宝静）
+0. 🌈地痞 - 顽童MJ116/瘦子E.SO
+1. 🌈金上瘾 - 顽童MJ116
+2. 🌈Jungle - 顽童MJ116
+3. 🌈再见 - 江静（呆宝静）
+4. 🌈CPR - 江静（呆宝静）
 5. 🌈迷途羔羊 (Live) - 顽童MJ116
 6. 🌈干大事  - 顽童MJ116
-7. 🌈Won't Deny (Feat. 瘦子E.SO) - 江静（呆宝静）/瘦子E.SO
-8. 🌈你说了算 - 张惠妹/瘦子E.SO
-9. 🌈Coming Home - MC Hotdog/顽童MJ116
+7. 🌈远方的姑娘我想念你 你可知道 - 秋野
+8. 🌈敞篷车 - 顽童MJ116
+9. 🌈Running   - 顽童MJ116
 
