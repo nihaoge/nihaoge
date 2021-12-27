@@ -10,8 +10,8 @@
 3. 🌈better off without you - Julia Wu/瘦子E.SO
 4. 🌈Fly Out - 兄弟本色
 5. 🌈迷途羔羊 - 张震岳
-6. 🌈卷睫盼 - 万玲琳
-7. 🌈一场误会 - 卫兰
-8. 🌈辣台妹 - 顽童MJ116
-9. 🌈Last Man Standing - 顽童MJ116
+6. 🌈辣台妹 - 顽童MJ116
+7. 🌈卷睫盼 - 万玲琳
+8. 🌈一场误会 - 卫兰
+9. 🌈Way Up - 瘦子E.SO
 
