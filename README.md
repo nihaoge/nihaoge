@@ -10,8 +10,8 @@
 3. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
 4. 🌈Coming Home - MC Hotdog/顽童MJ116
 5. 🌈Fly Out - 兄弟本色
-6. 🌈干大事 V2 (Live) - 顽童MJ116
-7. 🌈质感老乡 (Live) - 顽童MJ116
-8. 🌈Southside (Live) - 顽童MJ116
-9. 🌈I Hate People Talk - 顽童MJ116
+6. 🌈质感老乡 (Live) - 顽童MJ116
+7. 🌈Super Duper - 顽童MJ116
+8. 🌈Love Song - 宋岳庭
+9. 🌈GOOD VIBE Feat. STARR CHEN , MOOZLIE - 顽童MJ116/陈星翰/Moozlie
 
