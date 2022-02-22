@@ -7,11 +7,11 @@
 0. 🌈天空之城（翻自 逼哥）  - 耿十三
 1. 🌈Coming Home (Live) - 顽童MJ116
 2. 🌈达文西 - 瘦子E.SO
-3. 🌈迷途羔羊 (Live) - 顽童MJ116
-4. 🌈Coming Home - MC Hotdog/顽童MJ116
+3. 🌈Back to the street - 顽童MJ116
+4. 🌈迷途羔羊 (Live) - 顽童MJ116
 5. 🌈Skit (Kenzy) - 顽童MJ116
-6. 🌈Shake - 顽童MJ116
-7. 🌈Back to the street - 顽童MJ116
-8. 🌈敞篷车 - 顽童MJ116
-9. 🌈Tiffany - 瘦子E.SO
+6. 🌈Coming Home - MC Hotdog/顽童MJ116
+7. 🌈Tiffany - 瘦子E.SO
+8. 🌈FatBoyGang - 大渊MUTA
+9. 🌈你说了算 - 张惠妹/瘦子E.SO
 
