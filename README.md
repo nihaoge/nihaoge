@@ -9,9 +9,9 @@
 2. 🌈Way Up - 瘦子E.SO
 3. 🌈迷途羔羊 - 张震岳
 4. 🌈慢慢喜欢你 - 莫文蔚
-5. 🌈骗吃骗吃 - 顽童MJ116
-6. 🌈少年董  - 顽童MJ116
-7. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
-8. 🌈脱罪 - 顽童MJ116
-9. 🌈Fly Out - 兄弟本色
+5. 🌈她没在看我 - 瘦子E.SO
+6. 🌈CHANGE - 瘦子E.SO
+7. 🌈少年董  - 顽童MJ116
+8. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
+9. 🌈黑夜不再来(Live) - 陈奕迅
 
