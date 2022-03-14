@@ -6,12 +6,12 @@
 
 0. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
 1. 🌈Way Up - 瘦子E.SO
-2. 🌈迷途羔羊 - 张震岳
-3. 🌈慢慢喜欢你 - 莫文蔚
-4. 🌈她没在看我 - 瘦子E.SO
-5. 🌈CHANGE - 瘦子E.SO
-6. 🌈少年董  - 顽童MJ116
-7. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
-8. 🌈脱罪 - 顽童MJ116
-9. 🌈Fly Out - 兄弟本色
+2. 🌈她没在看我 - 瘦子E.SO
+3. 🌈CHANGE - 瘦子E.SO
+4. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
+5. 🌈少年董  - 顽童MJ116
+6. 🌈迷途羔羊 - 张震岳
+7. 🌈Back to the street - 顽童MJ116
+8. 🌈骗吃骗吃 - 顽童MJ116
+9. 🌈黑夜不再来(Live) - 陈奕迅
 
