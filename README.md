@@ -8,10 +8,10 @@
 1. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
 2. 🌈CHANGE - 瘦子E.SO
 3. 🌈Back to the street - 顽童MJ116
-4. 🌈少年董  - 顽童MJ116
-5. 🌈Way Up - 瘦子E.SO
-6. 🌈这世界那么多人 - 莫文蔚
-7. 🌈干大事  - 顽童MJ116
-8. 🌈她没在看我 - 瘦子E.SO
-9. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
+4. 🌈Way Up - 瘦子E.SO
+5. 🌈干大事  - 顽童MJ116
+6. 🌈她没在看我 - 瘦子E.SO
+7. 🌈少年董  - 顽童MJ116
+8. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
+9. 🌈辣台妹 - 顽童MJ116
 
