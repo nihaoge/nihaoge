@@ -9,9 +9,9 @@
 2. 🌈CHANGE - 瘦子E.SO
 3. 🌈Back to the street - 顽童MJ116
 4. 🌈Way Up - 瘦子E.SO
-5. 🌈干大事  - 顽童MJ116
-6. 🌈她没在看我 - 瘦子E.SO
+5. 🌈她没在看我 - 瘦子E.SO
+6. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
 7. 🌈少年董  - 顽童MJ116
-8. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
-9. 🌈辣台妹 - 顽童MJ116
+8. 🌈2030 - 顽童MJ116
+9. 🌈迷途羔羊 - 张震岳
 
