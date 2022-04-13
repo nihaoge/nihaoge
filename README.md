@@ -10,8 +10,8 @@
 3. 🌈Back to the street - 顽童MJ116
 4. 🌈2030 - 顽童MJ116
 5. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
-6. 🌈Way Up - 瘦子E.SO
-7. 🌈她没在看我 - 瘦子E.SO
+6. 🌈Man In the Mirror   - 顽童MJ116/魏如萱
+7. 🌈轻熟女 27 - MC HotDog 热狗/关彦淳
 8. 🌈少年董  - 顽童MJ116
-9. 🌈你懂我意思吗 - 瘦子E.SO
+9. 🌈鬼地方 - 瘦子E.SO
 
