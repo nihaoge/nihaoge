@@ -9,9 +9,9 @@
 2. 🌈CHANGE - 瘦子E.SO
 3. 🌈Back to the street - 顽童MJ116
 4. 🌈2030 - 顽童MJ116
-5. 🌈少年董  - 顽童MJ116
-6. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
-7. 🌈Way Up - 瘦子E.SO
-8. 🌈相爱万年 (电视剧《金宵大厦2》插曲) - 李施嬅
-9. 🌈Man In the Mirror   - 顽童MJ116/魏如萱
+5. 🌈相爱万年 (电视剧《金宵大厦2》插曲) - 李施嬅
+6. 🌈少年董  - 顽童MJ116
+7. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
+8. 🌈Way Up - 瘦子E.SO
+9. 🌈夏天的风 - 温岚
 
