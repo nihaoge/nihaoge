@@ -10,8 +10,8 @@
 3. 🌈Back to the street - 顽童MJ116
 4. 🌈2030 - 顽童MJ116
 5. 🌈相爱万年 (电视剧《金宵大厦2》插曲) - 李施嬅
-6. 🌈少年董  - 顽童MJ116
-7. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
-8. 🌈Way Up - 瘦子E.SO
-9. 🌈夏天的风 - 温岚
+6. 🌈夏天的风 - 温岚
+7. 🌈少年董  - 顽童MJ116
+8. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
+9. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
 
