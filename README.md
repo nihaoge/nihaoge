@@ -9,9 +9,9 @@
 2. 🌈Back to the street - 顽童MJ116
 3. 🌈CHANGE - 瘦子E.SO
 4. 🌈夏天的风 - 温岚
-5. 🌈相爱万年 (电视剧《金宵大厦2》插曲) - 李施嬅
-6. 🌈少年董  - 顽童MJ116
-7. 🌈I Can Fly - 陈冠希
-8. 🌈2030 - 顽童MJ116
-9. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
+5. 🌈2030 - 顽童MJ116
+6. 🌈相爱万年 (电视剧《金宵大厦2》插曲) - 李施嬅
+7. 🌈少年董  - 顽童MJ116
+8. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
+9. 🌈记得我吗 - 陈冠希
 
