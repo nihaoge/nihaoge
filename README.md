@@ -12,6 +12,6 @@
 5. 🌈夏天的风 - 温岚
 6. 🌈少年董  - 顽童MJ116
 7. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
-8. 🌈Way Up - 瘦子E.SO
-9. 🌈Salute - 陈冠希
+8. 🌈Salute - 陈冠希
+9. 🌈I Can Fly - 陈冠希
 
