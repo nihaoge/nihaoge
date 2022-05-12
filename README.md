@@ -8,10 +8,10 @@
 1. 🌈达文西 - 瘦子E.SO
 2. 🌈2030 - 顽童MJ116
 3. 🌈Back to the street - 顽童MJ116
-4. 🌈Salute - 陈冠希
-5. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
-6. 🌈Way Up - 瘦子E.SO
-7. 🌈她没在看我 - 瘦子E.SO
-8. 🌈傲娇+辣台妹 feat. 顽童MJ116(Live) - 徐佳莹/顽童MJ116
-9. 🌈少年董  - 顽童MJ116
+4. 🌈你懂我意思吗 - 瘦子E.SO
+5. 🌈Salute - 陈冠希
+6. 🌈I Can Fly - 陈冠希
+7. 🌈Running - 陈冠希
+8. 🌈无心睡眠 - 陈冠希
+9. 🌈你说了算 - 张惠妹/瘦子E.SO
 
