@@ -10,8 +10,8 @@
 3. 🌈金上瘾 - 顽童MJ116
 4. 🌈Way Up - 瘦子E.SO
 5. 🌈CHANGE - 瘦子E.SO
-6. 🌈干大事  - 顽童MJ116
-7. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
-8. 🌈她没在看我 - 瘦子E.SO
-9. 🌈骗吃骗吃 - 顽童MJ116
+6. 🌈少年董  - 顽童MJ116
+7. 🌈South Side - 顽童MJ116
+8. 🌈干大事  - 顽童MJ116
+9. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
 
