@@ -13,5 +13,5 @@
 6. 🌈Married To The Game - 瘦子E.SO
 7. 🌈地痞 - 顽童MJ116/瘦子E.SO
 8. 🌈祖先 ft. HowZ - 瘦子E.SO/HowZ
-9. 🌈Super Duper - 顽童MJ116
+9. 🌈CHANGE - 瘦子E.SO
 
