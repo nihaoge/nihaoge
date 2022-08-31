@@ -12,6 +12,6 @@
 5. 🌈白老鼠 - MC HotDog 热狗
 6. 🌈NFT - MC HotDog 热狗
 7. 🌈我的第一首歌 - MC HotDog 热狗
-8. 🌈除了说唱我什么都不会 - MC HotDog 热狗
-9. 🌈Life Goes On - MC HotDog 热狗
+8. 🌈Life Goes On - MC HotDog 热狗
+9. 🌈除了说唱我什么都不会 - MC HotDog 热狗
 
