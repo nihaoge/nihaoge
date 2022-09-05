@@ -10,8 +10,8 @@
 3. 🌈Benz Remix ft. DZKNOW & 瘦子 E-SO - Finesse'Boy
 4. 🌈我的第一首歌 - MC HotDog 热狗
 5. 🌈白老鼠 - MC HotDog 热狗
-6. 🌈他们根本不是Rapper - MC HotDog 热狗
-7. 🌈除了说唱我什么都不会 - MC HotDog 热狗
-8. 🌈Life Goes On - MC HotDog 热狗
-9. 🌈Blue Skies - 陈冠希/邓丽欣
+6. 🌈Back to the street - 顽童MJ116
+7. 🌈他们根本不是Rapper - MC HotDog 热狗
+8. 🌈Blue Skies - 陈冠希/邓丽欣
+9. 🌈How we fly - 顽童MJ116
 
