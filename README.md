@@ -12,6 +12,6 @@
 5. 🌈国王的新歌 - MC HotDog 热狗
 6. 🌈NFT - MC HotDog 热狗
 7. 🌈白老鼠 - MC HotDog 热狗
-8. 🌈2030 - 顽童MJ116
-9. 🌈烦死人 - MC HotDog 热狗
+8. 🌈烦死人 - MC HotDog 热狗
+9. 🌈King Boomba's Crew - 陈冠希/MC HotDog 热狗
 
