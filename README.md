@@ -11,7 +11,7 @@
 4. 🌈Won't Deny (Feat. 瘦子E.SO) - 江静（呆宝静）/瘦子E.SO
 5. 🌈我在昨天的梦里又看见了你（demo） - 枯木逢春
 6. 🌈脱罪 - 顽童MJ116
-7. 🌈2030 - 顽童MJ116
-8. 🌈For Love - 陈冠希
-9. 🌈山山 (Original Version) ft. Tipsy - 大渊MUTA/Tipsy
+7. 🌈二手车 (Live版) - 顽童MJ116
+8. 🌈Last Man Standing - 顽童MJ116
+9. 🌈2030 - 顽童MJ116
 
