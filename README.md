@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈Beats Myself and I (Mix Version) - 顽童MJ116
-1. 🌈Play我呸 - 蔡依林
-2. 🌈Running - 顽童MJ116
-3. 🌈红面线(Yella boyz) - 瘦子E.SO/LC
-4. 🌈Reboot 关机 ，开机 - 陈冠希
-5. 🌈Alien Girl - 陈冠希/MC仁/厨房仔
-6. 🌈Man In the Mirror - 顽童MJ116/魏如萱
-7. 🌈NFT - MC HotDog 热狗
-8. 🌈祖先 ft. HowZ - 瘦子E.SO/HowZ
-9. 🌈FatBoyGang - 大渊MUTA
+0. 🌈红面线(Yella boyz) - 瘦子E.SO/LC
+1. 🌈Running - 顽童MJ116
+2. 🌈我的生活 - MC HotDog 热狗
+3. 🌈Reboot 关机 ，开机 - 陈冠希
+4. 🌈Back to the street - 顽童MJ116
+5. 🌈Play我呸 - 蔡依林
+6. 🌈Beats Myself and I (Mix Version) - 顽童MJ116
+7. 🌈Jungle - 顽童MJ116
+8. 🌈For Love - 陈冠希
+9. 🌈NFT - MC HotDog 热狗
 
