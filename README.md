@@ -5,7 +5,7 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈头文字T (Live) - Tizzy T
-1. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
+1. 🌈红面线(Yella boyz) - 瘦子E.SO/LC
 2. 🌈Act Like U Know - 陈冠希/Just Blaze
 3. 🌈2030 - 顽童MJ116
 4. 🌈我的第一首歌 - MC HotDog 热狗
