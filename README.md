@@ -8,10 +8,10 @@
 1. 🌈2030 - 顽童MJ116
 2. 🌈Jungle (Live版) - 顽童MJ116
 3. 🌈Super Duper - 顽童MJ116
-4. 🌈战争 (feat. 陈奂仁, 胡蓓蔚, MC 仁) - 陈冠希/陈奂仁/胡蓓蔚/MC仁
-5. 🌈头文字T (Live) - Tizzy T
-6. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
-7. 🌈早就 - MC HotDog 热狗
-8. 🌈Hip-hop没有派对 (Live) - MC HotDog 热狗
-9. 🌈你懂我意思吗 - 瘦子E.SO
+4. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
+5. 🌈轻熟女 27 - MC HotDog 热狗/关彦淳
+6. 🌈战争 (feat. 陈奂仁, 胡蓓蔚, MC 仁) - 陈冠希/陈奂仁/胡蓓蔚/MC仁
+7. 🌈二手车 (Live版) - 顽童MJ116
+8. 🌈头文字T (Live) - Tizzy T
+9. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
 
