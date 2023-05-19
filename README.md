@@ -6,12 +6,12 @@
 
 0. 🌈十局上半 - MC HotDog 热狗
 1. 🌈头文字T (Live) - Tizzy T
-2. 🌈战争 (feat. 陈奂仁, 胡蓓蔚, MC 仁) - 陈冠希/陈奂仁/胡蓓蔚/MC仁
-3. 🌈Jungle (Live版) - 顽童MJ116
-4. 🌈2030 - 顽童MJ116
-5. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-6. 🌈轻熟女 27 - MC HotDog 热狗/关彦淳
-7. 🌈二手车 (Live版) - 顽童MJ116
-8. 🌈Super Duper - 顽童MJ116
-9. 🌈King Boomba's Crew - 陈冠希/MC HotDog 热狗
+2. 🌈Fly Out - 兄弟本色
+3. 🌈Jungle - 顽童MJ116
+4. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
+5. 🌈Bonus Track : I'm a Rapper - 江静（呆宝静）
+6. 🌈CPR - 江静（呆宝静）
+7. 🌈她没在看我 - 瘦子E.SO
+8. 🌈轻熟女 27 - MC HotDog 热狗/关彦淳
+9. 🌈少年董 - 顽童MJ116
 
