@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈十局上半 - MC HotDog 热狗
-1. 🌈2030 - 顽童MJ116
-2. 🌈头文字T (Live) - Tizzy T
-3. 🌈天的创作 - 瘦子E.SO
-4. 🌈R&B Girl Feat. J.Sheon - 顽童MJ116/J. Sheon
-5. 🌈歹性底 - 顽童MJ116
-6. 🌈Coming home (Live版) - 顽童MJ116
-7. 🌈Spotlight - 顽童MJ116
-8. 🌈思念是一种病 (Live) - 张震岳/MC HotDog 热狗
-9. 🌈MC来了 - MC HotDog 热狗
+1. 🌈Coming home (Live版) - 顽童MJ116
+2. 🌈2030 - 顽童MJ116
+3. 🌈Spotlight - 顽童MJ116
+4. 🌈头文字T (Live) - Tizzy T
+5. 🌈King Boomba's Crew - 陈冠希/MC HotDog 热狗
+6. 🌈早就 - MC HotDog 热狗
+7. 🌈思念是一种病 (Live) - 张震岳/MC HotDog 热狗
+8. 🌈R&B Girl Feat. J.Sheon - 顽童MJ116/J. Sheon
+9. 🌈Jungle (Live版) - 顽童MJ116
 
