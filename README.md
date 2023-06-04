@@ -11,7 +11,7 @@
 4. 🌈Hip-hop没有派对 (Live) - MC HotDog 热狗
 5. 🌈早就 - MC HotDog 热狗
 6. 🌈Just Believe (Live) - 顽童MJ116
-7. 🌈脏艺术家 (Live) - MC HotDog 热狗
-8. 🌈NFT - MC HotDog 热狗
-9. 🌈Super Duper - 顽童MJ116
+7. 🌈你啊你啊 - 魏如萱
+8. 🌈Super Duper - 顽童MJ116
+9. 🌈King Boomba's Crew - 陈冠希/MC HotDog 热狗
 
