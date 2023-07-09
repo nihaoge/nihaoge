@@ -10,8 +10,8 @@
 3. 🌈达文西 - 瘦子E.SO
 4. 🌈Jungle - 顽童MJ116
 5. 🌈Married To The Game - 瘦子E.SO
-6. 🌈就让这首歌 - 张震岳/侯佩岑/MC HotDog 热狗
-7. 🌈Love Song - 宋岳庭
-8. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
-9. 🌈二手车 (Live版) - 顽童MJ116
+6. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
+7. 🌈二手车 (Live版) - 顽童MJ116
+8. 🌈Coming home (Live版) - 顽童MJ116
+9. 🌈2030 - 顽童MJ116
 
