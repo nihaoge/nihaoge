@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈超級酷 - 顽童MJ116
-1. 🌈敞篷车 - 顽童MJ116
-2. 🌈在Cypher里  (LIVE版) - 瘦子E.SO/欧阳靖/李佳隆/小春Kenzy
-3. 🌈十局上半 - MC HotDog 热狗
-4. 🌈迷途羔羊 (Live) - 顽童MJ116
-5. 🌈Life Goes On - MC HotDog 热狗
-6. 🌈NFT - MC HotDog 热狗
-7. 🌈Don't Worry About Me - 瘦子E.SO
-8. 🌈红面线(Yella boyz) - 瘦子E.SO/LC
-9. 🌈Blue Skies - 陈冠希/邓丽欣
+0. 🌈十局上半 - MC HotDog 热狗
+1. 🌈Better Believe - 陳嘉唯/頑童MJ116
+2. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
+3. 🌈NFT - MC HotDog 热狗
+4. 🌈就让这首歌 - 张震岳/侯佩岑/MC HotDog 热狗
+5. 🌈为什么，My Love - 宋岳庭
+6. 🌈质感老乡 - 顽童MJ116
+7. 🌈2030 - 顽童MJ116
+8. 🌈头文字T (Live) - Tizzy T
+9. 🌈Back to the street - 顽童MJ116
 
