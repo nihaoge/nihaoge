@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
-1. 🌈迷途羔羊 (Live) - 顽童MJ116
-2. 🌈脱罪 (Live) - 顽童MJ116
-3. 🌈King Boomba's Crew - 陈冠希/MC HotDog 热狗
-4. 🌈十局上半 - MC HotDog 热狗
-5. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-6. 🌈Hip-hop没有派对 (Live) - MC HotDog 热狗
-7. 🌈早就 - MC HotDog 热狗
-8. 🌈让我RAP - MC HotDog 热狗
-9. 🌈我的生活 - MC HotDog 热狗
+0. 🌈Salute - 陈冠希
+1. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
+2. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
+3. 🌈迷途羔羊 (Live) - 顽童MJ116
+4. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
+5. 🌈Shake - 顽童MJ116
+6. 🌈I Hate People Talk - 顽童MJ116
+7. 🌈超級酷 - 顽童MJ116
+8. 🌈King Boomba's Crew - 陈冠希/MC HotDog 热狗
+9. 🌈在Cypher里  (LIVE版) - 瘦子E.SO/欧阳靖/李佳隆/小春Kenzy
 
