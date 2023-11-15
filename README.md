@@ -6,12 +6,12 @@
 
 0. 🌈十局上半 - MC HotDog 热狗
 1. 🌈2030 - 顽童MJ116
-2. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
-3. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-4. 🌈02 - Dizzy Dizzo/顽童MJ116
-5. 🌈Hip-hop没有派对 (Live) - MC HotDog 热狗
-6. 🌈让我RAP - MC HotDog 热狗
-7. 🌈我的生活 - MC HotDog 热狗
-8. 🌈Jungle (Live版) - 顽童MJ116
-9. 🌈Beats Myself and I (Mix Version) - 顽童MJ116
+2. 🌈Beats Myself and I (Mix Version) - 顽童MJ116
+3. 🌈在Cypher里  (LIVE版) - 瘦子E.SO/欧阳靖/李佳隆/小春Kenzy
+4. 🌈Just Believe (Live) - 顽童MJ116
+5. 🌈我的生活 - MC HotDog 热狗
+6. 🌈九局下半 (Live版) - 兄弟本色
+7. 🌈I Want It All - 顽童MJ116
+8. 🌈Southside - 顽童MJ116
+9. 🌈Super Duper - 顽童MJ116
 
