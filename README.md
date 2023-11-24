@@ -10,8 +10,8 @@
 3. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
 4. 🌈十局上半 - MC HotDog 热狗
 5. 🌈2030 - 顽童MJ116
-6. 🌈Shake - 顽童MJ116
-7. 🌈Running - 顽童MJ116
-8. 🌈迷途羔羊 (Live) - 顽童MJ116
-9. 🌈脱罪 (Live) - 顽童MJ116
+6. 🌈脱罪 (Live) - 顽童MJ116
+7. 🌈爱立刻有 - Bell玲惠
+8. 🌈02 - Dizzy Dizzo/顽童MJ116
+9. 🌈Coming home (Live版) - 顽童MJ116
 
