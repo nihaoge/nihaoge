@@ -10,8 +10,8 @@
 3. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
 4. 🌈定西 - 樊超
 5. 🌈2030 - 顽童MJ116
-6. 🌈Coming home (Live版) - 顽童MJ116
-7. 🌈脱罪 (Live) - 顽童MJ116
-8. 🌈02 - Dizzy Dizzo/顽童MJ116
+6. 🌈脱罪 (Live) - 顽童MJ116
+7. 🌈02 - Dizzy Dizzo/顽童MJ116
+8. 🌈Coming home (Live版) - 顽童MJ116
 9. 🌈迷途羔羊 (Live) - 顽童MJ116
 
