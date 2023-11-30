@@ -8,10 +8,10 @@
 1. 🌈十局上半 - MC HotDog 热狗
 2. 🌈她的眼光 - MC HotDog 热狗
 3. 🌈2030 - 顽童MJ116
-4. 🌈02 - Dizzy Dizzo/顽童MJ116
-5. 🌈Coming home (Live版) - 顽童MJ116
+4. 🌈Coming home (Live版) - 顽童MJ116
+5. 🌈依然我行我素 - MC HotDog 热狗
 6. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-7. 🌈脱罪 (Live) - 顽童MJ116
+7. 🌈02 - Dizzy Dizzo/顽童MJ116
 8. 🌈迷途羔羊 (Live) - 顽童MJ116
-9. 🌈脱罪 - 顽童MJ116
+9. 🌈脱罪 (Live) - 顽童MJ116
 
