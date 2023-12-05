@@ -11,7 +11,7 @@
 4. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
 5. 🌈2030 - 顽童MJ116
 6. 🌈02 - Dizzy Dizzo/顽童MJ116
-7. 🌈Alien Girl - 陈冠希/MC仁/厨房仔
-8. 🌈Jungle (Live版) - 顽童MJ116
-9. 🌈九局下半 (Live版) - 兄弟本色
+7. 🌈Jungle (Live版) - 顽童MJ116
+8. 🌈Coming home (Live版) - 顽童MJ116
+9. 🌈迷途羔羊 (Live) - 顽童MJ116
 
