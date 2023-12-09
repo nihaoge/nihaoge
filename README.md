@@ -7,11 +7,11 @@
 0. 🌈依然我行我素 - MC HotDog 热狗
 1. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
 2. 🌈她的眼光 - MC HotDog 热狗
-3. 🌈How we fly - 顽童MJ116
-4. 🌈Rap Star - 顽童MJ116
-5. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-6. 🌈嘿嘿Taxi - MC HotDog 热狗
-7. 🌈十局上半 - MC HotDog 热狗
-8. 🌈ชอบเธออะ - Bell玲惠
-9. 🌈祖先 ft. HowZ - 瘦子E.SO/HowZ
+3. 🌈Blue Skies - 陈冠希/邓丽欣
+4. 🌈世末歌者 - 乐正绫/COP
+5. 🌈可惜没如果 - 林俊杰
+6. 🌈祝星 - 陈粒
+7. 🌈这世界只有你明白我 - 隔壁团乐队
+8. 🌈Rap Star - 顽童MJ116
+9. 🌈Super Duper - 顽童MJ116
 
