@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈依然我行我素 - MC HotDog 热狗
-1. 🌈双手插口袋 - 顽童MJ116/张震岳
-2. 🌈Big Big World - Emilia
-3. 🌈楼上的房东 - MC HotDog 热狗
-4. 🌈追梦绿 - MC HotDog 热狗
-5. 🌈她的眼光 - MC HotDog 热狗
-6. 🌈爱立刻有 - Bell玲惠
-7. 🌈生日快乐 - yihuik苡慧
-8. 🌈我的第一首歌 - MC HotDog 热狗
-9. 🌈aloha heja he - 群星
+1. 🌈除了说唱我什么都不会 - MC HotDog 热狗
+2. 🌈How we fly - 顽童MJ116
+3. 🌈NFT - MC HotDog 热狗
+4. 🌈贫民百万歌星 - MC HotDog 热狗
+5. 🌈Chill Out - 瘦子E.SO
+6. 🌈无心睡眠 - 陈冠希
+7. 🌈头文字T (Live) - TizzyT
+8. 🌈Party MC - 顽童MJ116
+9. 🌈双手插口袋 - 顽童MJ116/张震岳
 
