@@ -9,9 +9,9 @@
 2. 🌈依然我行我素 - MC HotDog 热狗
 3. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
 4. 🌈她的眼光 - MC HotDog 热狗
-5. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-6. 🌈2030 - 顽童MJ116
+5. 🌈2030 - 顽童MJ116
+6. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
 7. 🌈Mario Karting - 陈冠希/MC HotDog 热狗
-8. 🌈流星小夜曲 - MC HotDog 热狗/岑宁儿
-9. 🌈十局上半 - MC HotDog 热狗
+8. 🌈十局上半 - MC HotDog 热狗
+9. 🌈流星小夜曲 - MC HotDog 热狗/岑宁儿
 
