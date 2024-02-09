@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈约翰屈伏塔 - MC HotDog 热狗
-1. 🌈Start From The Bottom - MC HotDog 热狗
-2. 🌈2030 - 顽童MJ116
-3. 🌈依然我行我素 - MC HotDog 热狗
-4. 🌈她的眼光 - MC HotDog 热狗
-5. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
-6. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
-7. 🌈你懂我意思吗 - 瘦子E.SO
-8. 🌈战争 (feat. 陈奂仁, 胡蓓蔚, MC 仁) - 陈冠希/陈奂仁/胡蓓蔚/MC仁
-9. 🌈记得我吗 - 陈冠希
+0. 🌈2030 - 顽童MJ116
+1. 🌈约翰屈伏塔 - MC HotDog 热狗
+2. 🌈Start From The Bottom - MC HotDog 热狗
+3. 🌈她的眼光 - MC HotDog 热狗
+4. 🌈Jungle (Live版) - 顽童MJ116
+5. 🌈Coming home (Live版) - 顽童MJ116
+6. 🌈Spotlight - 顽童MJ116
+7. 🌈Southside - 顽童MJ116
+8. 🌈Super Duper - 顽童MJ116
+9. 🌈Mario Karting - 陈冠希/MC HotDog 热狗
 
