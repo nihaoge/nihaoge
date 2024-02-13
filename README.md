@@ -12,6 +12,6 @@
 5. 🌈二手车 (Live版) - 顽童MJ116
 6. 🌈I Want It All - 顽童MJ116
 7. 🌈飙高速 - 顽童MJ116
-8. 🌈脱罪 - 顽童MJ116
-9. 🌈Fly Out - 兄弟本色
+8. 🌈Fly Out - 兄弟本色
+9. 🌈约翰屈伏塔 - MC HotDog 热狗
 
