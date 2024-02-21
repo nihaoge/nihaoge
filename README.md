@@ -6,12 +6,12 @@
 
 0. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
 1. 🌈脏艺术家 (Live) - MC HotDog 热狗
-2. 🌈约翰屈伏塔 - MC HotDog 热狗
-3. 🌈Hip-hop没有派对 (Live) - MC HotDog 热狗
-4. 🌈脱罪 - 顽童MJ116
-5. 🌈好朋友 - 顽童MJ116
-6. 🌈Mario Karting - 陈冠希/MC HotDog 热狗
-7. 🌈Start From The Bottom - MC HotDog 热狗
-8. 🌈她的眼光 - MC HotDog 热狗
-9. 🌈十局上半 - MC HotDog 热狗
+2. 🌈Mario Karting - 陈冠希/MC HotDog 热狗
+3. 🌈迷途羔羊 (Live) - 顽童MJ116
+4. 🌈Hip-hop没有派对 (Live) - MC HotDog 热狗
+5. 🌈脱罪 - 顽童MJ116
+6. 🌈好朋友 - 顽童MJ116
+7. 🌈Super Duper - 顽童MJ116
+8. 🌈约翰屈伏塔 - MC HotDog 热狗
+9. 🌈脱罪 (Live) - 顽童MJ116
 
