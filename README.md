@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈脏艺术家 (Live) - MC HotDog 热狗
-1. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-2. 🌈好朋友 - 顽童MJ116
-3. 🌈Hip-hop没有派对 (Live) - MC HotDog 热狗
-4. 🌈Intro - 瘦子E.SO
-5. 🌈脱罪 - 顽童MJ116
-6. 🌈How we roll - 顽童MJ116
-7. 🌈Super Duper - 顽童MJ116
-8. 🌈Mario Karting - 陈冠希/MC HotDog 热狗
-9. 🌈约翰屈伏塔 - MC HotDog 热狗
+0. 🌈How we roll - 顽童MJ116
+1. 🌈迷途羔羊 (Live) - 顽童MJ116
+2. 🌈Married To The Game - 瘦子E.SO
+3. 🌈02 - Dizzy Dizzo/顽童MJ116
+4. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
+5. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
+6. 🌈Intro - 瘦子E.SO
+7. 🌈I Can Fly - 陈冠希
+8. 🌈Jungle (Live版) - 顽童MJ116
+9. 🌈Coming home (Live版) - 顽童MJ116
 
