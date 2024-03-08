@@ -9,9 +9,9 @@
 2. 🌈白老鼠 - MC HotDog 热狗
 3. 🌈干大事 - 顽童MJ116
 4. 🌈她的眼光 - MC HotDog 热狗
-5. 🌈除了说唱我什么都不会 - MC HotDog 热狗
-6. 🌈她没在看我 - 瘦子E.SO
-7. 🌈歹性底 - 顽童MJ116/小春Kenzy
-8. 🌈浪漫一下 - 顽童MJ116
-9. 🌈I Want It All - 顽童MJ116
+5. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
+6. 🌈十局上半 - MC HotDog 热狗
+7. 🌈迷途羔羊 (Live) - 顽童MJ116
+8. 🌈脱罪 (Live) - 顽童MJ116
+9. 🌈歹性底 - 顽童MJ116/小春Kenzy
 
