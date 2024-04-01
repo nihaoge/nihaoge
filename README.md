@@ -13,5 +13,5 @@
 6. 🌈你说了算 - 张惠妹/瘦子E.SO
 7. 🌈Spotlight - 顽童MJ116
 8. 🌈飙高速 - 顽童MJ116
-9. 🌈X Gon' Give It to Ya (Radio Edit) - DMX
+9. 🌈你(吉他甜蜜版) - 林依晨
 
