@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈谢天谢帝 - 诺米么Lodmemo
-1. 🌈Play我呸 - 蔡依林
-2. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-3. 🌈记得我吗 - 陈冠希
-4. 🌈依然我行我素 - MC HotDog 热狗
-5. 🌈在Cypher里  (LIVE版) - 瘦子E.SO/欧阳靖/李佳隆/小春Kenzy
-6. 🌈流星小夜曲 - MC HotDog 热狗/岑宁儿
-7. 🌈你说了算 - 张惠妹/瘦子E.SO
-8. 🌈Southside - 顽童MJ116
-9. 🌈2030 - 顽童MJ116
+1. 🌈记得我吗 - 陈冠希
+2. 🌈Jungle (Live版) - 顽童MJ116
+3. 🌈Southside - 顽童MJ116
+4. 🌈2030 - 顽童MJ116
+5. 🌈干大事 - 顽童MJ116
+6. 🌈迷途羔羊 - 张震岳
+7. 🌈Play我呸 - 蔡依林
+8. 🌈Start From The Bottom - MC HotDog 热狗
+9. 🌈在Cypher里  (LIVE版) - 瘦子E.SO/欧阳靖/李佳隆/小春Kenzy
 
