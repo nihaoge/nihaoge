@@ -5,8 +5,8 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈卷睫盼 - 万玲琳
-1. 🌈若把你 - Kirsty刘瑾睿
-2. 🌈春泥 - 1个球
+1. 🌈春泥 - 1个球
+2. 🌈若把你 - Kirsty刘瑾睿
 3. 🌈被遗忘的时光 - 蔡琴
 4. 🌈不染 - 萨顶顶
 5. 🌈安和桥 - 宋冬野
