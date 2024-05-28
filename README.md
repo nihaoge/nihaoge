@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈春泥 - 1个球
-1. 🌈祖先 ft. HowZ - 瘦子E.SO/HowZ
-2. 🌈情深深雨濛濛 - 杨胖雨
-3. 🌈Alien Girl - 陈冠希/MC仁/厨房仔
-4. 🌈NFT - MC HotDog 热狗
-5. 🌈Married To The Game - 瘦子E.SO
-6. 🌈我们的爱 (Live) - 黄霄雲
-7. 🌈Hip-hop没有派对 (Live) - MC HotDog 热狗
-8. 🌈离开 - MC HotDog 热狗/张震岳
-9. 🌈少年董 - 顽童MJ116
+0. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
+1. 🌈NFT - MC HotDog 热狗
+2. 🌈少年董 - 顽童MJ116
+3. 🌈记得我吗 - 陈冠希
+4. 🌈Alien Girl - 陈冠希/MC仁/厨房仔
+5. 🌈他们根本不是Rapper - MC HotDog 热狗
+6. 🌈春泥 - 1个球
+7. 🌈祖先 ft. HowZ - 瘦子E.SO/HowZ
+8. 🌈情深深雨濛濛 - 杨胖雨
+9. 🌈Hip-hop没有派对 (Live) - MC HotDog 热狗
 
