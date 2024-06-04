@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
+0. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
 1. 🌈Back to the street - 顽童MJ116
-2. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
+2. 🌈春泥 - 1个球
 3. 🌈鬼地方 - 瘦子E.SO
-4. 🌈春泥 - 1个球
-5. 🌈若把你 - Kirsty刘瑾睿
-6. 🌈少年董 - 顽童MJ116
-7. 🌈Reboot 关机 ，开机 - 陈冠希
-8. 🌈贫民百万歌星 (Live版) - MC HotDog 热狗
-9. 🌈不染 - 萨顶顶
+4. 🌈不染 - 萨顶顶
+5. 🌈浪漫一下 - 顽童MJ116
+6. 🌈矜持 - 王菲
+7. 🌈被遗忘的时光 - 蔡琴
+8. 🌈迷途羔羊 (Live) - 顽童MJ116
+9. 🌈脱罪 (Live) - 顽童MJ116
 
