@@ -12,6 +12,6 @@
 5. 🌈2030 - 顽童MJ116
 6. 🌈十局上半 - MC HotDog 热狗
 7. 🌈若把你 - Kirsty刘瑾睿
-8. 🌈不染 - 萨顶顶
-9. 🌈春泥 - 1个球
+8. 🌈Act Like U Know - 陈冠希/Just Blaze
+9. 🌈Coming home (Live版) - 顽童MJ116
 
