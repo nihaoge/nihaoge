@@ -12,6 +12,6 @@
 5. 🌈Jungle (Live版) - 顽童MJ116
 6. 🌈十局上半 - MC HotDog 热狗
 7. 🌈如愿 - 王菲
-8. 🌈第一次爱的人 - 王心凌
-9. 🌈若把你 - Kirsty刘瑾睿
+8. 🌈Coming home (Live版) - 顽童MJ116
+9. 🌈脱罪 - 顽童MJ116
 
