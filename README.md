@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈飙高速 - 顽童MJ116
-1. 🌈约翰屈伏塔 - MC HotDog 热狗
+0. 🌈脱罪 (Live) - 顽童MJ116
+1. 🌈飙高速 - 顽童MJ116
 2. 🌈最爱 - 阿梨粤
-3. 🌈How we fly - 顽童MJ116
-4. 🌈脱罪 (Live) - 顽童MJ116
-5. 🌈晚风心里吹 - 阿梨粤
-6. 🌈春泥 - 1个球
-7. 🌈MC来了 - MC HotDog 热狗
-8. 🌈你懂我意思吗 - 瘦子E.SO
-9. 🌈Start From The Bottom - MC HotDog 热狗
+3. 🌈晚风心里吹 - 阿梨粤
+4. 🌈春泥 - 1个球
+5. 🌈How we fly - 顽童MJ116
+6. 🌈约翰屈伏塔 - MC HotDog 热狗
+7. 🌈山山 (Original Version) ft. Tipsy - 大渊MUTA/Tipsy
+8. 🌈CPR - 呆宝静
+9. 🌈CHANGE - 瘦子E.SO
 
