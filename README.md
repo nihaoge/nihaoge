@@ -6,12 +6,12 @@
 
 0. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
 1. 🌈她的眼光 - MC HotDog 热狗
-2. 🌈矜持 - 王菲
-3. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
-4. 🌈安和桥 - 宋冬野
-5. 🌈OMG (Apple Music Edition) - NewJeans
-6. 🌈约翰屈伏塔 - MC HotDog 热狗
-7. 🌈依然我行我素 - MC HotDog 热狗
-8. 🌈十局上半 - MC HotDog 热狗
-9. 🌈Daydream - 宋岳庭
+2. 🌈Daydream - 宋岳庭
+3. 🌈Salute - 陈冠希
+4. 🌈二手车 (Live版) - 顽童MJ116
+5. 🌈干大事 - 顽童MJ116
+6. 🌈迷途羔羊 - 张震岳
+7. 🌈How we roll - 顽童MJ116
+8. 🌈矜持 - 王菲
+9. 🌈I Hate People Talk - 顽童MJ116
 
