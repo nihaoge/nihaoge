@@ -12,6 +12,6 @@
 5. 🌈干大事 - 顽童MJ116
 6. 🌈迷途羔羊 - 张震岳
 7. 🌈How we roll - 顽童MJ116
-8. 🌈矜持 - 王菲
-9. 🌈I Hate People Talk - 顽童MJ116
+8. 🌈I Hate People Talk - 顽童MJ116
+9. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
 
