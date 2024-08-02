@@ -10,8 +10,8 @@
 3. 🌈你说了算 - 张惠妹/瘦子E.SO
 4. 🌈脱罪 - 顽童MJ116
 5. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
-6. 🌈爱你没差 - 周杰伦
-7. 🌈达文西 - 瘦子E.SO
-8. 🌈嘿嘿Taxi - MC HotDog 热狗
-9. 🌈离开 - MC HotDog 热狗/张震岳
+6. 🌈达文西 - 瘦子E.SO
+7. 🌈I Wish I Was There - 瘦子E.SO
+8. 🌈离开 - MC HotDog 热狗/张震岳
+9. 🌈Act Like U Know - 陈冠希/Just Blaze
 
