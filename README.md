@@ -6,12 +6,12 @@
 
 0. 🌈约翰屈伏塔 - MC HotDog 热狗
 1. 🌈依然我行我素 - MC HotDog 热狗
-2. 🌈走跳 - 顽童MJ116
-3. 🌈你说了算 - 张惠妹/瘦子E.SO
-4. 🌈脱罪 - 顽童MJ116
-5. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
-6. 🌈达文西 - 瘦子E.SO
-7. 🌈I Wish I Was There - 瘦子E.SO
-8. 🌈离开 - MC HotDog 热狗/张震岳
-9. 🌈Act Like U Know - 陈冠希/Just Blaze
+2. 🌈你说了算 - 张惠妹/瘦子E.SO
+3. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
+4. 🌈I Wish I Was There - 瘦子E.SO
+5. 🌈谣言 - 陈冠希
+6. 🌈走跳 - 顽童MJ116
+7. 🌈脱罪 - 顽童MJ116
+8. 🌈South Side - 顽童MJ116
+9. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
 
