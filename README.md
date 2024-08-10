@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
-1. 🌈脱罪 - 顽童MJ116
-2. 🌈约翰屈伏塔 - MC HotDog 热狗
-3. 🌈依然我行我素 - MC HotDog 热狗
-4. 🌈Won't Deny (Feat. 瘦子E.SO) - 呆宝静/瘦子E.SO
-5. 🌈让我RAP - MC HotDog 热狗
-6. 🌈Salute - 陈冠希
-7. 🌈Running - 陈冠希
-8. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
-9. 🌈谣言 - 陈冠希
+0. 🌈脱罪 - 顽童MJ116
+1. 🌈让我RAP - MC HotDog 热狗
+2. 🌈Salute - 陈冠希
+3. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
+4. 🌈Jungle (Live版) - 顽童MJ116
+5. 🌈Coming home (Live版) - 顽童MJ116
+6. 🌈寄 - HHW
+7. 🌈Last Man Standing - 顽童MJ116
+8. 🌈Southside - 顽童MJ116
+9. 🌈2030 - 顽童MJ116
 
