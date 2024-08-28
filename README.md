@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈How Sweet (Cover by NewJeans) - K
-1. 🌈除了说唱我什么都不会 - MC HotDog 热狗
-2. 🌈春泥 - 1个球
-3. 🌈约翰屈伏塔 - MC HotDog 热狗
-4. 🌈Shake - 顽童MJ116
-5. 🌈How we fly - 顽童MJ116
+1. 🌈春泥 - 1个球
+2. 🌈除了说唱我什么都不会 - MC HotDog 热狗
+3. 🌈头文字T (Live) - TizzyT
+4. 🌈超級酷 - 顽童MJ116
+5. 🌈约翰屈伏塔 - MC HotDog 热狗
 6. 🌈舞娘 - 蔡依林
-7. 🌈在Cypher里  (LIVE版) - 瘦子E.SO/欧阳靖/李佳隆/小春Kenzy
-8. 🌈十局上半 - MC HotDog 热狗
-9. 🌈脏艺术家 (LIVE版) - MC HotDog 热狗
+7. 🌈十局上半 - MC HotDog 热狗
+8. 🌈Don't Worry About Me - 瘦子E.SO
+9. 🌈Love Song - 宋岳庭
 
