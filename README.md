@@ -10,8 +10,8 @@
 3. 🌈Jungle (Live版) - 顽童MJ116
 4. 🌈I Want It All - 顽童MJ116
 5. 🌈她的眼光 - MC HotDog 热狗
-6. 🌈最爱 - 阿梨粤
-7. 🌈若把你 - Kirsty刘瑾睿
-8. 🌈Blue Skies - 陈冠希/邓丽欣
+6. 🌈在Cypher里  (LIVE版) - 瘦子E.SO/欧阳靖/李佳隆/小春Kenzy
+7. 🌈最爱 - 阿梨粤
+8. 🌈若把你 - Kirsty刘瑾睿
 9. 🌈不染 - 萨顶顶
 
