@@ -8,10 +8,10 @@
 1. 🌈依然我行我素 - MC HotDog 热狗
 2. 🌈她的眼光 - MC HotDog 热狗
 3. 🌈十局上半 - MC HotDog 热狗
-4. 🌈I Want It All - 顽童MJ116
-5. 🌈Click Clack - Slim Thug/Pusha T
-6. 🌈约翰屈伏塔 - MC HotDog 热狗
-7. 🌈Start From The Bottom - MC HotDog 热狗
-8. 🌈晚风心里吹 - 阿梨粤
-9. 🌈再见 - 呆宝静
+4. 🌈Running - 陈冠希
+5. 🌈I Want It All - 顽童MJ116
+6. 🌈Rap Star - 顽童MJ116
+7. 🌈MJ Fresh Gang - 顽童MJ116/MC HotDog 热狗
+8. 🌈Click Clack - Slim Thug/Pusha T
+9. 🌈Start From The Bottom - MC HotDog 热狗
 
