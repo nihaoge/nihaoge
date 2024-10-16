@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈I Want It All - 顽童MJ116
-1. 🌈Running - 顽童MJ116
-2. 🌈脏艺术家 (LIVE版) - MC HotDog 热狗
-3. 🌈求神 - 梁兆基/林帆
-4. 🌈少年董 - 顽童MJ116
-5. 🌈鬼地方 - 瘦子E.SO
-6. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
-7. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
-8. 🌈红面线(Yella boyz) - 瘦子E.SO/LC
-9. 🌈Chill Out - 瘦子E.SO
+0. 🌈脏艺术家 (LIVE版) - MC HotDog 热狗
+1. 🌈I Want It All - 顽童MJ116
+2. 🌈Southside - 顽童MJ116
+3. 🌈Super Duper - 顽童MJ116
+4. 🌈Running - 顽童MJ116
+5. 🌈Mario Karting - 陈冠希/MC HotDog 热狗
+6. 🌈King Boomba's Crew - 陈冠希/MC HotDog 热狗
+7. 🌈迷途羔羊 (Live) - 顽童MJ116
+8. 🌈脱罪 (Live) - 顽童MJ116
+9. 🌈早就 - MC HotDog 热狗
 
