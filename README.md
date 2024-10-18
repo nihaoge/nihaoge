@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈I Want It All - 顽童MJ116
-1. 🌈Running - 顽童MJ116
-2. 🌈求神 - 梁兆基/林帆
-3. 🌈少年董 - 顽童MJ116
-4. 🌈鬼地方 - 瘦子E.SO
-5. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
-6. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
-7. 🌈红面线(Yella boyz) - 瘦子E.SO/LC
-8. 🌈Chill Out - 瘦子E.SO
-9. 🌈你懂我意思吗 - 瘦子E.SO
+0. 🌈How Sweet (Cover by NewJeans) - whosxiaolin
+1. 🌈I Want It All - 顽童MJ116
+2. 🌈头文字T (Live) - TizzyT
+3. 🌈最爱 - 阿梨粤
+4. 🌈求神 - 梁兆基/林帆
+5. 🌈少年董 - 顽童MJ116
+6. 🌈鬼地方 - 瘦子E.SO
+7. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
+8. 🌈Jungle (Live版) - 顽童MJ116
+9. 🌈2030 - 顽童MJ116
 
