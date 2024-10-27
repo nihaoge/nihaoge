@@ -9,9 +9,9 @@
 2. 🌈How Sweet (Cover by NewJeans) - whosxiaolin
 3. 🌈最爱 - 阿梨粤
 4. 🌈少年董 - 顽童MJ116
-5. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
-6. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
-7. 🌈Chill Out - 瘦子E.SO
-8. 🌈Blue Skies - 陈冠希/邓丽欣
-9. 🌈Act Like U Know - 陈冠希/Just Blaze
+5. 🌈约翰屈伏塔 - MC HotDog 热狗
+6. 🌈Start From The Bottom - MC HotDog 热狗
+7. 🌈晚风心里吹 - 阿梨粤
+8. 🌈如愿 - 王菲
+9. 🌈江浦街的汉庭酒店只有雨季 - 左小祖咒/罗永浩/左罗乐团
 
