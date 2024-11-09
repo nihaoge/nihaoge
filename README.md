@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈嘿嘿Taxi - MC HotDog 热狗
-1. 🌈Chill Out - 瘦子E.SO
-2. 🌈你懂我意思吗 - 瘦子E.SO
-3. 🌈谣言 - 陈冠希
-4. 🌈传奇 (Live) - 郭沁
-5. 🌈头文字T (Live) - TizzyT
-6. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
-7. 🌈Just Believe (Live) - 顽童MJ116
-8. 🌈流星小夜曲 - MC HotDog 热狗/岑宁儿
-9. 🌈十年 - 孙露
+0. 🌈你懂我意思吗 - 瘦子E.SO
+1. 🌈Salute - 陈冠希
+2. 🌈歹性底 - 顽童MJ116/小春Kenzy
+3. 🌈传奇 (Live) - 郭沁
+4. 🌈头文字T (Live) - TizzyT
+5. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
+6. 🌈十年 - 孙露
+7. 🌈我的生活 - MC HotDog 热狗
+8. 🌈嘿嘿Taxi - MC HotDog 热狗
+9. 🌈离开 - MC HotDog 热狗/张震岳
 
