@@ -10,8 +10,8 @@
 3. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
 4. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
 5. 🌈质感老乡 - 顽童MJ116
-6. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
-7. 🌈他们根本不是Rapper - MC HotDog 热狗
-8. 🌈祖先 ft. HowZ - 瘦子E.SO/HowZ
-9. 🌈FatBoyGang - 大渊MUTA
+6. 🌈South Side - 顽童MJ116
+7. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
+8. 🌈他们根本不是Rapper - MC HotDog 热狗
+9. 🌈祖先 ft. HowZ - 瘦子E.SO/HowZ
 
