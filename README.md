@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈被遗忘的时光 - 蔡琴
-1. 🌈心恋 - 徐小凤
-2. 🌈恰似你的温柔 - 蔡琴
-3. 🌈初恋 - 林志美
-4. 🌈Letting Go - 蔡健雅
-5. 🌈如愿 - 王菲
-6. 🌈唯一 - 告五人
-7. 🌈伤心太平洋 - 左傲雪
-8. 🌈迷人的危险 - 明歆悦
-9. 🌈若把你 - Kirsty刘瑾睿
+0. 🌈如愿 - 王菲
+1. 🌈不染 - 萨顶顶
+2. 🌈Luv Letter - DJ Okawari
+3. 🌈野孩子 - 杨千嬅
+4. 🌈Safe and Sound - MADILYN
+5. 🌈心恋 - 徐小凤
+6. 🌈爱的故事上集 - 王闻/童丽
+7. 🌈Holidays (Radio Edit) - Remady/Manu-L
+8. 🌈暗里着迷 - 曼丽/王闻
+9. 🌈初恋 - 林志美
 
