@@ -7,11 +7,11 @@
 0. 🌈Luv Letter - DJ Okawari
 1. 🌈Safe and Sound - MADILYN
 2. 🌈Holidays (Radio Edit) - Remady/Manu-L
-3. 🌈恰似你的温柔 - 蔡琴
-4. 🌈California Dreamin' - The Mamas & the Papas
-5. 🌈如愿 - 王菲
-6. 🌈原來你也在這裡 - 孙露
-7. 🌈唯一 - 告五人
-8. 🌈偏爱 - 张芸京
-9. 🌈日が落ちるまで - ハンバート ハンバート
+3. 🌈California Dreamin' - The Mamas & the Papas
+4. 🌈偏爱 - 张芸京
+5. 🌈日が落ちるまで - ハンバート ハンバート
+6. 🌈差不多先生过新年 - MC HotDog 热狗
+7. 🌈Wannabe - Why Mona/Unlike Pluto/Joanna Jones
+8. 🌈遇到 - 方雅贤
+9. 🌈TheStar - 音阙诗听/李佳思
 
