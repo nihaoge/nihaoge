@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈渡口 - 蔡琴
-1. 🌈人间 - 葱香科学家（王悠然）
-2. 🌈你说了算 - 张惠妹/瘦子E.SO
-3. 🌈Drown - ZABO
-4. 🌈Just Believe - 顽童MJ116
-5. 🌈超級酷 - 顽童MJ116
-6. 🌈Man In the Mirror - 顽童MJ116/魏如萱
-7. 🌈活着viva - 阿梨粤
-8. 🌈你的眼神 - 蔡琴
-9. 🌈恰似你的温柔 - 蔡琴
+1. 🌈蓝莲花 - 黄琬婷
+2. 🌈一次就好 - 房东的猫
+3. 🌈人间 - 葱香科学家（王悠然）
+4. 🌈Won't Deny (Feat. 瘦子E.SO) - 呆宝静/瘦子E.SO
+5. 🌈爱要怎么说出口 - 澪恩Seiwen
+6. 🌈小小的太陽 - 孙露
+7. 🌈Drown - ZABO
+8. 🌈迷途羔羊 - 张震岳
+9. 🌈X Gon' Give It to Ya (Radio Edit) - DMX
 
