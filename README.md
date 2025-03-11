@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈约翰屈伏塔 - MC HotDog 热狗
-1. 🌈2030 - 顽童MJ116
-2. 🌈特别的人 - 方大同
-3. 🌈一次就好 - 房东的猫
-4. 🌈遗失的心跳 - 糯米Nomi
+0. 🌈年轮 - 张碧晨
+1. 🌈渡口 - 蔡琴
+2. 🌈2030 - 顽童MJ116
+3. 🌈舍得 - 王唯旖
+4. 🌈Married To The Game - 瘦子E.SO
 5. 🌈Way Up - 瘦子E.SO
-6. 🌈唯一 - 告五人
+6. 🌈香港地 - 陈冠希/陈奂仁/Mc 仁
 7. 🌈Blue Skies - 陈冠希/邓丽欣
-8. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
-9. 🌈渡口 - 蔡琴
+8. 🌈Shake - 顽童MJ116
+9. 🌈Back to the street - 顽童MJ116
 
