@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈年轮 - 张碧晨
-1. 🌈渡口 - 蔡琴
-2. 🌈2030 - 顽童MJ116
-3. 🌈舍得 - 王唯旖
-4. 🌈Married To The Game - 瘦子E.SO
-5. 🌈Way Up - 瘦子E.SO
-6. 🌈香港地 - 陈冠希/陈奂仁/Mc 仁
-7. 🌈Blue Skies - 陈冠希/邓丽欣
-8. 🌈Shake - 顽童MJ116
-9. 🌈Back to the street - 顽童MJ116
+0. 🌈渡口 - 蔡琴
+1. 🌈舍得 - 王唯旖
+2. 🌈年轮 - 张碧晨
+3. 🌈Bonus Track : I'm a Rapper - 呆宝静
+4. 🌈2030 - 顽童MJ116
+5. 🌈岁月神偷 - 金玟岐
+6. 🌈蓝莲花 - 黄琬婷
+7. 🌈一次就好 - 房东的猫
+8. 🌈十局上半 - MC HotDog 热狗
+9. 🌈遗失的心跳 - 糯米Nomi
 
