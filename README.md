@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈渡口 - 蔡琴
-1. 🌈舍得 - 王唯旖
-2. 🌈年轮 - 张碧晨
-3. 🌈Bonus Track : I'm a Rapper - 呆宝静
-4. 🌈2030 - 顽童MJ116
-5. 🌈岁月神偷 - 金玟岐
-6. 🌈蓝莲花 - 黄琬婷
-7. 🌈一次就好 - 房东的猫
-8. 🌈十局上半 - MC HotDog 热狗
-9. 🌈遗失的心跳 - 糯米Nomi
+0. 🌈Bonus Track : I'm a Rapper - 呆宝静
+1. 🌈渡口 - 蔡琴
+2. 🌈舍得 - 王唯旖
+3. 🌈年轮 - 张碧晨
+4. 🌈约翰屈伏塔 - MC HotDog 热狗
+5. 🌈Married To The Game - 瘦子E.SO
+6. 🌈Way Up - 瘦子E.SO
+7. 🌈天的创作 - 瘦子E.SO
+8. 🌈Reboot 关机 ，开机 - 陈冠希
+9. 🌈2030 - 顽童MJ116
 
