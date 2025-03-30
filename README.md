@@ -11,7 +11,7 @@
 4. 🌈干大事 - 顽童MJ116
 5. 🌈Fly Out - 兄弟本色
 6. 🌈Start From The Bottom - MC HotDog 热狗
-7. 🌈她的眼光 - MC HotDog 热狗
-8. 🌈九局下半 (Live版) - 兄弟本色
-9. 🌈脱罪 - 顽童MJ116
+7. 🌈依然我行我素 - MC HotDog 热狗
+8. 🌈她的眼光 - MC HotDog 热狗
+9. 🌈九局下半 (Live版) - 兄弟本色
 
