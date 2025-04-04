@@ -6,12 +6,12 @@
 
 0. 🌈依然我行我素 - MC HotDog 热狗
 1. 🌈十局上半 - MC HotDog 热狗
-2. 🌈2030 - 顽童MJ116
+2. 🌈Jungle (Live版) - 顽童MJ116
 3. 🌈脱罪 - 顽童MJ116
-4. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
-5. 🌈迷途羔羊 (Live) - 顽童MJ116
-6. 🌈让我RAP - MC HotDog 热狗
-7. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
-8. 🌈Jungle (Live版) - 顽童MJ116
-9. 🌈Coming home (Live版) - 顽童MJ116
+4. 🌈干大事 - 顽童MJ116
+5. 🌈Easy Come Easy Go - 蔡健雅/MC HotDog 热狗
+6. 🌈约翰屈伏塔 - MC HotDog 热狗
+7. 🌈Start From The Bottom - MC HotDog 热狗
+8. 🌈她的眼光 - MC HotDog 热狗
+9. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
 
