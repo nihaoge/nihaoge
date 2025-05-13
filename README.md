@@ -13,5 +13,5 @@
 6. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
 7. 🌈Alien Girl - 陈冠希/MC仁/厨房仔
 8. 🌈脱罪 - 顽童MJ116
-9. 🌈Super Duper - 顽童MJ116
+9. 🌈滥俗的歌 - 汉堡黄
 
