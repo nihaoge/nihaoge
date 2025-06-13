@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈OGS - 顽童MJ116
-1. 🌈Drown - ZABO
-2. 🌈R&B Girl Feat. J.Sheon - 顽童MJ116/J. Sheon
-3. 🌈Spotlight - 顽童MJ116
-4. 🌈飙高速 - 顽童MJ116
-5. 🌈头文字T (Live) - TizzyT
-6. 🌈Party MC - 顽童MJ116
-7. 🌈Shake - 顽童MJ116
-8. 🌈兄弟们要进城 - 顽童MJ116
+1. 🌈Spotlight - 顽童MJ116
+2. 🌈Drown - ZABO
+3. 🌈Party MC - 顽童MJ116
+4. 🌈你懂我意思吗 - 瘦子E.SO
+5. 🌈贫民百万歌星 (Live版) - MC HotDog 热狗
+6. 🌈飙高速 - 顽童MJ116
+7. 🌈头文字T (Live) - TizzyT
+8. 🌈Shake - 顽童MJ116
 9. 🌈新造的人 - 郑宜农
 
