@@ -12,6 +12,6 @@
 5. 🌈有点神经 - 顽童MJ116
 6. 🌈Champagne Shower - 顽童MJ116
 7. 🌈NONO - 顽童MJ116
-8. 🌈笨小孩 - 顽童MJ116
-9. 🌈Here We Are - 顽童MJ116
+8. 🌈Here We Are - 顽童MJ116
+9. 🌈OGS - 顽童MJ116
 
