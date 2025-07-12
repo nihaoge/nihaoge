@@ -8,10 +8,10 @@
 1. 🌈Rain City - 顽童MJ116
 2. 🌈PALI PALI - 顽童MJ116
 3. 🌈兄弟们要进城 - 顽童MJ116
-4. 🌈里长Bro - 顽童MJ116
-5. 🌈有点神经 - 顽童MJ116
+4. 🌈有点神经 - 顽童MJ116
+5. 🌈里长Bro - 顽童MJ116
 6. 🌈Champagne Shower - 顽童MJ116
 7. 🌈NONO - 顽童MJ116
-8. 🌈Here We Are - 顽童MJ116
-9. 🌈OGS - 顽童MJ116
+8. 🌈笨小孩 - 顽童MJ116
+9. 🌈Here We Are - 顽童MJ116
 
