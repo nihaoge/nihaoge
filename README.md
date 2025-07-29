@@ -9,9 +9,9 @@
 2. 🌈It's About Time - 顽童MJ116/BZARCO
 3. 🌈OGS - 顽童MJ116
 4. 🌈嗨嗨人生 - MC HotDog 热狗/张震岳/关颖
-5. 🌈不吃早餐才是一件很嘻哈的事 - MC HotDog 热狗/蛋堡
-6. 🌈里长Bro - 顽童MJ116
-7. 🌈兄弟们要进城 - 顽童MJ116
-8. 🌈安可 - MC HotDog 热狗
-9. 🌈Jungle (Live版) - 顽童MJ116
+5. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
+6. 🌈Jungle (Live版) - 顽童MJ116
+7. 🌈2030 - 顽童MJ116
+8. 🌈里长Bro - 顽童MJ116
+9. 🌈约翰屈伏塔 - MC HotDog 热狗
 
