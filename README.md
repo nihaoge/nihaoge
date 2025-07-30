@@ -7,11 +7,11 @@
 0. 🌈Rain City - 顽童MJ116
 1. 🌈有点神经 - 顽童MJ116
 2. 🌈It's About Time - 顽童MJ116/BZARCO
-3. 🌈OGS - 顽童MJ116
-4. 🌈嗨嗨人生 - MC HotDog 热狗/张震岳/关颖
-5. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
-6. 🌈Jungle (Live版) - 顽童MJ116
-7. 🌈2030 - 顽童MJ116
-8. 🌈里长Bro - 顽童MJ116
-9. 🌈约翰屈伏塔 - MC HotDog 热狗
+3. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
+4. 🌈里长Bro - 顽童MJ116
+5. 🌈兄弟们要进城 - 顽童MJ116
+6. 🌈OGS - 顽童MJ116
+7. 🌈早就 - MC HotDog 热狗
+8. 🌈我的生活 - MC HotDog 热狗
+9. 🌈嗨嗨人生 - MC HotDog 热狗/张震岳/关颖
 
