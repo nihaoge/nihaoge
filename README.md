@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈I Hate People Talk - 顽童MJ116
-1. 🌈Salute - 陈冠希
-2. 🌈贫民百万歌星 (Live版) - MC HotDog 热狗
-3. 🌈2030 - 顽童MJ116
+0. 🌈Salute - 陈冠希
+1. 🌈少年董 - 顽童MJ116
+2. 🌈记得我吗 - 陈冠希
+3. 🌈贫民百万歌星 (Live版) - MC HotDog 热狗
 4. 🌈脱罪 - 顽童MJ116
-5. 🌈祖先 ft. HowZ - 瘦子E.SO/HowZ
-6. 🌈就让这首歌 - 张震岳/侯佩岑/MC HotDog 热狗
-7. 🌈Won't Deny (Feat. 瘦子E.SO) - 呆宝静/瘦子E.SO
-8. 🌈安可 - MC HotDog 热狗
-9. 🌈离开 - MC HotDog 热狗/张震岳
+5. 🌈Play我呸 - 蔡依林
+6. 🌈I Hate People Talk - 顽童MJ116
+7. 🌈Man In the Mirror - 顽童MJ116/魏如萱
+8. 🌈It's About Time - 顽童MJ116/BZARCO
+9. 🌈依然我行我素 - MC HotDog 热狗
 
