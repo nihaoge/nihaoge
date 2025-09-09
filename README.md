@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈OGS - 顽童MJ116
-1. 🌈失恋阵线联盟 - 草蜢
-2. 🌈楼上的房东 - MC HotDog 热狗
-3. 🌈十局上半 - MC HotDog 热狗
-4. 🌈滥俗的歌 - 汉堡黄
-5. 🌈不分手的恋爱 - 汪苏泷
-6. 🌈思念是一种病 (Live) - 张震岳/MC HotDog 热狗
-7. 🌈A Little Story - Valentin
-8. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
-9. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
+1. 🌈她的眼光 - MC HotDog 热狗
+2. 🌈嗨嗨人生 - MC HotDog 热狗/张震岳/关颖
+3. 🌈不吃早餐才是一件很嘻哈的事 - MC HotDog 热狗/蛋堡
+4. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
+5. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
+6. 🌈Chill Out - 瘦子E.SO
+7. 🌈Blue Skies - 陈冠希/邓丽欣
+8. 🌈Jungle (Live版) - 顽童MJ116
+9. 🌈飙高速 - 顽童MJ116
 
