@@ -10,8 +10,8 @@
 3. 🌈It's About Time - 顽童MJ116/BZARCO
 4. 🌈Rain City - 顽童MJ116
 5. 🌈秋风 - 四熹丸子
-6. 🌈脱罪 (Live) - 顽童MJ116
-7. 🌈改变 - MC HotDog 热狗/张震岳
-8. 🌈我的生活Ⅱ - MC HotDog 热狗
-9. 🌈贫民百万歌星 (Live版) - MC HotDog 热狗
+6. 🌈贫民百万歌星 (Live版) - MC HotDog 热狗
+7. 🌈Just Believe - 顽童MJ116
+8. 🌈里长Bro - 顽童MJ116
+9. 🌈OGS - 顽童MJ116
 
