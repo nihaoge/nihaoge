@@ -10,8 +10,8 @@
 3. 🌈老子有钱 - MC HotDog 热狗
 4. 🌈鬼地方 - 瘦子E.SO
 5. 🌈Intro - 瘦子E.SO
-6. 🌈Coming home (Live版) - 顽童MJ116
-7. 🌈你说了算 - 张惠妹/瘦子E.SO
-8. 🌈Southside - 顽童MJ116
-9. 🌈脱罪 - 顽童MJ116
+6. 🌈Act Like U Know - 陈冠希/Just Blaze
+7. 🌈Coming home (Live版) - 顽童MJ116
+8. 🌈你说了算 - 张惠妹/瘦子E.SO
+9. 🌈Southside - 顽童MJ116
 
