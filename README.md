@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈嗨嗨人生 (Live) - 张震岳/MC HotDog 热狗
-1. 🌈I Never Told You - 陈冠希/陈奂仁
-2. 🌈母老虎 - MC HotDog 热狗
-3. 🌈说散就散 - 袁娅维TIA RAY
-4. 🌈MC來了 - MC HotDog 热狗
-5. 🌈里长Bro - 顽童MJ116
-6. 🌈有点神经 - 顽童MJ116
-7. 🌈光輝歲月 - 孙露
-8. 🌈爱要怎么说出口 - 澪恩Seiwen
-9. 🌈老子有钱 - MC HotDog 热狗
+0. 🌈MC來了 - MC HotDog 热狗
+1. 🌈假使再爱一次 - Ruby露比在唱歌
+2. 🌈生日快乐（Happy Birthday）(英文版) - 库库小队
+3. 🌈母老虎 - MC HotDog 热狗
+4. 🌈Rain City - 顽童MJ116
+5. 🌈鬼迷心窍 - 变现点love
+6. 🌈I Never Told You - 陈冠希/陈奂仁
+7. 🌈渡口 - 蔡琴
+8. 🌈说散就散 - 袁娅维TIA RAY
+9. 🌈最远的你是我最近的爱 - 雷婷
 
