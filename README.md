@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈假使再爱一次 - Ruby露比在唱歌
-1. 🌈生日快乐（Happy Birthday）(英文版) - 库库小队
-2. 🌈MC來了 - MC HotDog 热狗
-3. 🌈渡口 - 蔡琴
-4. 🌈Rain City - 顽童MJ116
+1. 🌈活着Viva - 阿梨粤
+2. 🌈生日快乐（Happy Birthday）(英文版) - 库库小队
+3. 🌈滥俗的歌 - 汉堡黄
+4. 🌈你啊你啊 (Live) - 邢晗铭
 5. 🌈鬼迷心窍 - 变现点love
-6. 🌈活着Viva - 阿梨粤
-7. 🌈你啊你啊 (Live) - 邢晗铭
-8. 🌈母老虎 - MC HotDog 热狗
-9. 🌈最远的你是我最近的爱 - 雷婷
+6. 🌈渡口 - 蔡琴
+7. 🌈舍得 - 王唯旖
+8. 🌈不是因为寂寞才想你 - 雷婷
+9. 🌈MC來了 - MC HotDog 热狗
 
