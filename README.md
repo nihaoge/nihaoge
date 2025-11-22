@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈妄为 - 谢春花
-1. 🌈活着Viva - 阿梨粤
-2. 🌈爱的故事上集 - 王闻/童丽
-3. 🌈兄弟们要进城 - 顽童MJ116
-4. 🌈月半小夜曲 - 阿梨粤
-5. 🌈电灯胆 - 阿梨粤
-6. 🌈人间 - 葱香科学家（王悠然）
-7. 🌈滥俗的歌 - 汉堡黄
-8. 🌈最爱 - 阿梨粤
-9. 🌈那女孩对我说（女生正式版） - 戴羽彤
+1. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
+2. 🌈脱罪 - 顽童MJ116
+3. 🌈Rain City - 顽童MJ116
+4. 🌈OGS - 顽童MJ116
+5. 🌈兄弟们要进城 - 顽童MJ116
+6. 🌈约翰屈伏塔 - MC HotDog 热狗
+7. 🌈楼上的房东 - MC HotDog 热狗
+8. 🌈Start From The Bottom - MC HotDog 热狗
+9. 🌈她的眼光 - MC HotDog 热狗
 
