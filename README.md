@@ -7,11 +7,11 @@
 0. 🌈冲动 - 印子月
 1. 🌈最爱 - 阿梨粤
 2. 🌈Fly Out - 兄弟本色
-3. 🌈Just Believe - 顽童MJ116
-4. 🌈情歌 - 梁静茹
-5. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-6. 🌈有点甜 - 汪苏泷/By2
-7. 🌈Cookie (Ft.热水澡) - 热水澡/陈志林Mega
-8. 🌈Blueming - EdenJiyon/恩恩
-9. 🌈母老虎 - MC HotDog 热狗
+3. 🌈情歌 - 梁静茹
+4. 🌈故乡 - 黄琬婷
+5. 🌈有点甜 - 汪苏泷/By2
+6. 🌈母老虎 - MC HotDog 热狗
+7. 🌈少年董 - 顽童MJ116
+8. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
+9. 🌈I Never Told You - 陈冠希/陈奂仁
 
