@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈秋风 - 徐化文（四熹丸子）
-1. 🌈岁月神偷 - 金玟岐
-2. 🌈玉珍 - 福禄寿FloruitShow
-3. 🌈Benz Remix ft. DZKNOW & 瘦子 E-SO - Finesse'Boy
-4. 🌈慢慢喜欢你 - 莫文蔚
-5. 🌈你一定要幸福 - 何洁
-6. 🌈小半 - 陈粒
-7. 🌈爱人呢 - 郭采洁
-8. 🌈默 - 那英
-9. 🌈爱的主打歌 - 萧亚轩
+0. 🌈慢慢喜欢你 - 莫文蔚
+1. 🌈How Sweet - noli
+2. 🌈就算世界无童话 - 卫兰
+3. 🌈月亮代表我的心 - 邓丽君
+4. 🌈只爱西经 - 林一
+5. 🌈轻熟女 27 - MC HotDog 热狗/关彦淳
+6. 🌈贫民百万歌星 - MC HotDog 热狗
+7. 🌈Benz Remix ft. DZKNOW & 瘦子 E-SO - Finesse'Boy
+8. 🌈美人鱼 - 林俊杰
+9. 🌈若把你 - Kirsty刘瑾睿
 
