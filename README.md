@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈Kuna！伊赞之土！（快看！伊赞之土！） - Idina Menzel/无限暖暖/FoldEcho
-1. 🌈第57次取消发送 - 菲菲公主（陆绮菲）
-2. 🌈爱情讯息 - 郭静
-3. 🌈晚安 - 颜人中
-4. 🌈Star Crossing Night (feat. GALI) - 徐明浩/GALI
-5. 🌈Zoo (From "Zootopia 2"/Soundtrack Version) - Disney/Shakira
-6. 🌈如果呢 - 郑润泽
-7. 🌈认真的雪 - 薛之谦
-8. 🌈孤独患者 - 陈奕迅
-9. 🌈いつも何度でも - 伊藤サチコ
+0. 🌈Letting Go - 蔡健雅
+1. 🌈若把你 - Kirsty刘瑾睿
+2. 🌈慢慢喜欢你 - 莫文蔚
+3. 🌈Fly Out - 兄弟本色
+4. 🌈假使再爱一次 - Ruby露比在唱歌
+5. 🌈兄弟们要进城 - 顽童MJ116
+6. 🌈故乡 - 黄琬婷
+7. 🌈活着Viva - 阿梨粤
+8. 🌈月光小夜曲 - 蔡琴
+9. 🌈大花轿 - 火风
 
