@@ -11,7 +11,7 @@
 4. 🌈Zoo (From "Zootopia 2"/Soundtrack Version) - Disney/Shakira
 5. 🌈Star Crossing Night (feat. GALI) - 徐明浩/GALI
 6. 🌈如果呢 - 郑润泽
-7. 🌈打火机 - Penny
-8. 🌈boyfriend - Ariana Grande/Social House
-9. 🌈孤独患者 - 陈奕迅
+7. 🌈孤独患者 - 陈奕迅
+8. 🌈失恋阵线联盟 - 草蜢
+9. 🌈宠爱 - TFBOYS
 
