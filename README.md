@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈第57次取消发送 - 菲菲公主（陆绮菲）
-1. 🌈爱情讯息 - 郭静
-2. 🌈晚安 - 颜人中
-3. 🌈Kuna！伊赞之土！（快看！伊赞之土！） - Idina Menzel/无限暖暖/FoldEcho
-4. 🌈Zoo (From "Zootopia 2"/Soundtrack Version) - Disney/Shakira
-5. 🌈Star Crossing Night (feat. GALI) - 徐明浩/GALI
-6. 🌈如果呢 - 郑润泽
-7. 🌈母老虎 - MC HotDog 热狗
-8. 🌈孤独患者 - 陈奕迅
-9. 🌈失恋阵线联盟 - 草蜢
+0. 🌈I Never Told You - 陈冠希/陈奂仁
+1. 🌈笨小孩 - 刘德华/吴宗宪/柯受良
+2. 🌈里长Bro - 顽童MJ116
+3. 🌈老子有钱 - MC HotDog 热狗
+4. 🌈嗨嗨人生 (Live) - 张震岳/MC HotDog 热狗
+5. 🌈少年董 - 顽童MJ116
+6. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
+7. 🌈战争 (feat. 陈奂仁, 胡蓓蔚, MC 仁) - 陈冠希/陈奂仁/胡蓓蔚/MC仁
+8. 🌈Blue Skies - 陈冠希/邓丽欣
+9. 🌈九局下半 (Live版) - 兄弟本色
 
