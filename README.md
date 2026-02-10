@@ -6,7 +6,7 @@
 
 0. 🌈Spotlight - 顽童MJ116
 1. 🌈Play我呸 - 蔡依林
-2. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
+2. 🌈永不失联的爱 (Live) - 单依纯
 3. 🌈Blue Skies - 陈冠希/邓丽欣
 4. 🌈记得我吗 - 陈冠希
 5. 🌈二手车 (Live版) - 顽童MJ116
