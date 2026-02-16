@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈我想 - 余佳运
-1. 🌈母老虎 - MC HotDog 热狗
-2. 🌈MJ Party2008(beats by ezasscul) - 瘦子E.SO
-3. 🌈往后余生 - 马良
-4. 🌈二手车 (Live版) - 顽童MJ116
-5. 🌈特别的人 - 方大同
-6. 🌈Treasure - Bruno Mars
-7. 🌈爱立刻有 - Bell玲惠
-8. 🌈Life Goes On - MC HotDog 热狗
-9. 🌈Love Story (Taylor’s Version) - Taylor Swift
+0. 🌈脱罪 - 顽童MJ116
+1. 🌈兄弟们要进城 - 顽童MJ116
+2. 🌈Start From The Bottom - MC HotDog 热狗
+3. 🌈十局上半 - MC HotDog 热狗
+4. 🌈滥俗的歌 - 汉堡黄
+5. 🌈往后余生 - 马良
+6. 🌈我想 - 余佳运
+7. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
+8. 🌈安可 - MC HotDog 热狗
+9. 🌈母老虎 - MC HotDog 热狗
 
