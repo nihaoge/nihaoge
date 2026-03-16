@@ -11,7 +11,7 @@
 4. 🌈晚安 - 颜人中
 5. 🌈空空如也 - 任然
 6. 🌈云烟成雨 - 房东的猫
-7. 🌈心拍数♯0822（翻自 初音ミク） - Akie秋绘
-8. 🌈Star Crossing Night (feat. GALI) - 徐明浩/GALI
-9. 🌈蓝莲花 - 黄琬婷
+7. 🌈情花 - 本兮
+8. 🌈心拍数♯0822（翻自 初音ミク） - Akie秋绘
+9. 🌈Star Crossing Night (feat. GALI) - 徐明浩/GALI
 
