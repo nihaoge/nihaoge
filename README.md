@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈今晚不想睡 - 王大毛
-1. 🌈Dear D (亲爱的告诉你) - 项睿娴
-2. 🌈いつも何度でも - 伊藤サチコ
-3. 🌈Kuna！伊赞之土！（快看！伊赞之土！） - Idina Menzel/无限暖暖/FoldEcho
-4. 🌈绝对占有 相对自由 - 陈粒
-5. 🌈Just Believe - 顽童MJ116
-6. 🌈第57次取消发送 - 菲菲公主（陆绮菲）
-7. 🌈Together Till Infinity - 无限暖暖/Jessie J
-8. 🌈爱情讯息 - 郭静
-9. 🌈Bye Bye - Mariah Carey
+1. 🌈乌兰巴托的夜·2023 - 李雨霏_晚饭
+2. 🌈Dear D (亲爱的告诉你) - 项睿娴
+3. 🌈浪子回头 - 王玉萌
+4. 🌈Just Believe - 顽童MJ116
+5. 🌈秋风 - 徐化文（四熹丸子）
+6. 🌈天空之城。 - 耿十三
+7. 🌈Blue Skies - 陈冠希/邓丽欣
+8. 🌈いつも何度でも - 伊藤サチコ
+9. 🌈莫名奇妙爱上你 - 朱主爱
 
