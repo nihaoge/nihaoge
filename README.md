@@ -10,8 +10,8 @@
 3. 🌈快乐崇拜 - 潘玮柏/张韶涵
 4. 🌈女儿心如水 - 黄龄
 5. 🌈有哉と美月 - 中西亮輔
-6. 🌈Dear D (亲爱的告诉你) - 项睿娴
-7. 🌈OGS - 顽童MJ116
-8. 🌈兄弟们要进城 - 顽童MJ116
-9. 🌈Together Till Infinity - 无限暖暖/Jessie J
+6. 🌈OGS - 顽童MJ116
+7. 🌈兄弟们要进城 - 顽童MJ116
+8. 🌈Together Till Infinity - 无限暖暖/Jessie J
+9. 🌈约翰屈伏塔 - MC HotDog 热狗
 
