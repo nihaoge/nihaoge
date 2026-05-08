@@ -9,9 +9,9 @@
 2. 🌈我只在乎你 2.0（LIVE版） - MC HotDog 热狗/Capper/GALI/TizzyT/刘炫廷
 3. 🌈女儿心如水 - 黄龄
 4. 🌈有哉と美月 - 中西亮輔
-5. 🌈约翰屈伏塔 - MC HotDog 热狗
-6. 🌈快乐崇拜 - 潘玮柏/张韶涵
-7. 🌈那女孩对我说 - 黄义达
-8. 🌈I Never Told You - 陈冠希/陈奂仁
-9. 🌈干大事 - 顽童MJ116
+5. 🌈那女孩对我说 - 黄义达
+6. 🌈凡人歌 (Live) - MC HotDog 热狗/张震岳/GAI周延/黄旭
+7. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
+8. 🌈棉花糖 - 至上励合
+9. 🌈夏天的风 - 温岚
 
