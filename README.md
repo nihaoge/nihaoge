@@ -4,14 +4,14 @@
 
 😄 listen to my this week song list of top 10:
 
-0. 🌈I Never Told You - 陈冠希/陈奂仁
-1. 🌈渡口 - 蔡琴
-2. 🌈乌兰巴托的夜·2023 - 李雨霏_晚饭
-3. 🌈鬼地方 - 瘦子E.SO
-4. 🌈Chill Out - 瘦子E.SO
-5. 🌈Love U 2 - 陈伟霆
-6. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
-7. 🌈愛し子よ - ルルティア
-8. 🌈What is Love? - TWICE
-9. 🌈慢慢喜欢你 - 莫文蔚
+0. 🌈我只在乎你 2.0（LIVE版） - MC HotDog 热狗/Capper/GALI/TizzyT/刘炫廷
+1. 🌈乌兰巴托的夜·2023 - 李雨霏_晚饭
+2. 🌈嗨嗨人生 - MC HotDog 热狗/张震岳/关颖
+3. 🌈渡口 - 蔡琴
+4. 🌈凡人歌 (Live) - MC HotDog 热狗/张震岳/GAI周延/黄旭
+5. 🌈小丽 - 左小祖咒
+6. 🌈今晚不想睡 - 王大毛
+7. 🌈秋风 - 徐化文（四熹丸子）
+8. 🌈人上人 - 法老/MC HotDog 热狗
+9. 🌈Pull Up - MC HotDog 热狗/马思唯/KnowKnow
 
