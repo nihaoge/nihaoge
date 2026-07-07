@@ -6,12 +6,12 @@
 
 0. 🌈Once Upon A Time (House Mix) - Max Oazo/Moonessa
 1. 🌈April Encounter - 很美味
-2. 🌈头文字T (Live) - TizzyT
-3. 🌈兄弟们要进城 - 顽童MJ116
-4. 🌈我只在乎你 2.0（LIVE版） - MC HotDog 热狗/Capper/GALI/TizzyT/刘炫廷
-5. 🌈Pull Up - MC HotDog 热狗/马思唯/KnowKnow
-6. 🌈渡口 - 蔡琴
-7. 🌈今晚不想睡 - 王大毛
-8. 🌈情花 - 本兮
-9. 🌈午夜心碎台北 - KEY.L刘聪/功夫胖KUNGFU-PEN/MC HotDog 热狗/c0de731/Whle
+2. 🌈我只在乎你 2.0（LIVE版） - MC HotDog 热狗/Capper/GALI/TizzyT/刘炫廷
+3. 🌈头文字T (Live) - TizzyT
+4. 🌈今晚不想睡 - 王大毛
+5. 🌈兄弟们要进城 - 顽童MJ116
+6. 🌈情花 - 本兮
+7. 🌈午夜心碎台北 - KEY.L刘聪/功夫胖KUNGFU-PEN/MC HotDog 热狗/c0de731/Whle
+8. 🌈Pull Up - MC HotDog 热狗/马思唯/KnowKnow
+9. 🌈嗨嗨人生 (Live) - 张震岳/MC HotDog 热狗
 
