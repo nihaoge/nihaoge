@@ -13,5 +13,5 @@
 6. 🌈情花 - 本兮
 7. 🌈午夜心碎台北 - KEY.L刘聪/功夫胖KUNGFU-PEN/MC HotDog 热狗/c0de731/Whle
 8. 🌈Pull Up - MC HotDog 热狗/马思唯/KnowKnow
-9. 🌈嗨嗨人生 (Live) - 张震岳/MC HotDog 热狗
+9. 🌈Benz Remix ft. DZKNOW & 瘦子 E-SO - Finesse'Boy
 
