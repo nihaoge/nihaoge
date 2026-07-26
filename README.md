@@ -5,13 +5,13 @@
 😄 listen to my this week song list of top 10:
 
 0. 🌈楼上的房东 - MC HotDog 热狗
-1. 🌈Pull Up - MC HotDog 热狗/马思唯/KnowKnow
-2. 🌈脱罪 - 顽童MJ116
-3. 🌈It's About Time - 顽童MJ116/BZARCO
-4. 🌈午夜心碎台北 - KEY.L刘聪/功夫胖KUNGFU-PEN/MC HotDog 热狗/c0de731/Whle
-5. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
-6. 🌈我只在乎你 2.0（LIVE版） - MC HotDog 热狗/Capper/GALI/TizzyT/刘炫廷
-7. 🌈你啊你啊 - 叶琼琳
-8. 🌈嗨嗨人生 (Live) - 张震岳/MC HotDog 热狗
-9. 🌈少年董 - 顽童MJ116
+1. 🌈地痞 (Live) - 顽童MJ116/瘦子E.SO
+2. 🌈小宇 - 张震岳
+3. 🌈This Is What Makes Us Girls - Lana Del Rey
+4. 🌈少年董 - 顽童MJ116
+5. 🌈自己都不自己(dead presedent remix by josh) - 瘦子E.SO
+6. 🌈红面线(Yella boyz) - 瘦子E.SO/LC
+7. 🌈你懂我意思吗 - 瘦子E.SO
+8. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
+9. 🌈走跳 - 顽童MJ116
 
