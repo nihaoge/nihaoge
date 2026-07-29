@@ -6,12 +6,12 @@
 
 0. 🌈楼上的房东 - MC HotDog 热狗
 1. 🌈星星月亮太阳 - 李晟
-2. 🌈小满 - 音阙诗听/王梓钰
-3. 🌈少年董 - 顽童MJ116
-4. 🌈Everywhere We Go - 陈冠希/MC仁/厨房仔/应采儿
-5. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
-6. 🌈Pull Up - MC HotDog 热狗/马思唯/KnowKnow
-7. 🌈小宇 - 张震岳
-8. 🌈This Is What Makes Us Girls - Lana Del Rey
-9. 🌈行星(日文版) - 花篱千
+2. 🌈Pull Up - MC HotDog 热狗/马思唯/KnowKnow
+3. 🌈小满 - 音阙诗听/王梓钰
+4. 🌈少年董 - 顽童MJ116
+5. 🌈午夜心碎台北 - KEY.L刘聪/功夫胖KUNGFU-PEN/MC HotDog 热狗/c0de731/Whle
+6. 🌈小宇 - 张震岳
+7. 🌈This Is What Makes Us Girls - Lana Del Rey
+8. 🌈行星(日文版) - 花篱千
+9. 🌈鬼地方 - 瘦子E.SO
 
