@@ -12,6 +12,6 @@
 5. 🌈MJ Fresh Gang - 顽童MJ116/MC HotDog 热狗
 6. 🌈鳥の詩 - Lia
 7. 🌈兄弟们要进城 - 顽童MJ116
-8. 🌈Click Clack - Slim Thug/Pusha T
-9. 🌈楼上的房东 - MC HotDog 热狗
+8. 🌈楼上的房东 - MC HotDog 热狗
+9. 🌈愿与愁 - 林俊杰
 
