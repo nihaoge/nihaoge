@@ -10,8 +10,8 @@
 3. 🌈少年董 - 顽童MJ116
 4. 🌈Coming Home - MC HotDog 热狗/顽童MJ116
 5. 🌈MJ Fresh Gang - 顽童MJ116/MC HotDog 热狗
-6. 🌈鳥の詩 - Lia
-7. 🌈兄弟们要进城 - 顽童MJ116
-8. 🌈楼上的房东 - MC HotDog 热狗
-9. 🌈愿与愁 - 林俊杰
+6. 🌈兄弟们要进城 - 顽童MJ116
+7. 🌈楼上的房东 - MC HotDog 热狗
+8. 🌈改变 - MC HotDog 热狗/张震岳
+9. 🌈红面线(Yella boyz) - 瘦子E.SO/LC
 
