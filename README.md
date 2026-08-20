@@ -12,6 +12,6 @@
 5. 🌈里长Bro - 顽童MJ116
 6. 🌈It's About Time - 顽童MJ116/BZARCO
 7. 🌈OGS - 顽童MJ116
-8. 🌈约翰屈伏塔 - MC HotDog 热狗
-9. 🌈楼上的房东 - MC HotDog 热狗
+8. 🌈兄弟们要进城 - 顽童MJ116
+9. 🌈约翰屈伏塔 - MC HotDog 热狗
 
