@@ -9,9 +9,9 @@
 2. 🌈Bye Bye Bye - Lovestoned
 3. 🌈プラチナ - 坂本真綾
 4. 🌈小孩 - 罗森涛
-5. 🌈我只在乎你 2.0（LIVE版） - MC HotDog 热狗/Capper/GALI/TizzyT/刘炫廷
-6. 🌈Tek It (Sped Up) - Cafuné
-7. 🌈真夜中のドア〜stay with me (シングルver.) - 松原みき
-8. 🌈野孩子 - 杨千嬅
-9. 🌈Dear D (亲爱的告诉你) - 项睿娴
+5. 🌈Tek It (Sped Up) - Cafuné
+6. 🌈真夜中のドア〜stay with me (シングルver.) - 松原みき
+7. 🌈爱的魔法 (Live版) - 金莎
+8. 🌈乌兰巴托的夜·2023 - 李雨霏_晚饭
+9. 🌈我只在乎你 2.0（LIVE版） - MC HotDog 热狗/Capper/GALI/TizzyT/刘炫廷
 
