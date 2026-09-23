@@ -9,9 +9,9 @@
 2. 🌈母老虎 - MC HotDog 热狗
 3. 🌈里长Bro - 顽童MJ116
 4. 🌈It's About Time - 顽童MJ116/BZARCO
-5. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
-6. 🌈我只在乎你 2.0（LIVE版） - MC HotDog 热狗/Capper/GALI/TizzyT/刘炫廷
-7. 🌈Pull Up - MC HotDog 热狗/马思唯/KnowKnow
-8. 🌈改变 - MC HotDog 热狗/张震岳
-9. 🌈老子有钱 - MC HotDog 热狗
+5. 🌈Start From The Bottom - MC HotDog 热狗
+6. 🌈小跑猪的新衣 (LIVE版) - 欧阳靖/李佳隆/小春Kenzy
+7. 🌈I Never Told You - 陈冠希/陈奂仁
+8. 🌈干大事 - 顽童MJ116
+9. 🌈Costly Love - 顽童MJ116
 
